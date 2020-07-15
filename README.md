@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/decedg3780/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/decedg3780/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/t2222">git.io/t2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u66">x.co/u66</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tcccc">git.io/tcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/zpp">x.co/zpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/小粉红回国救父再爆黑幕 检察官索贿30万  >-009fcc?logoWidth=1" title="小粉红回国救父再爆黑幕 检察官索贿30万  " alt="小粉红回国救父再爆黑幕 检察官索贿30万  "></a></p>
+<p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平接班人后院起火 400亿烂尾楼曝光(视>-009fcc?logoWidth=1" title="习近平接班人后院起火 400亿烂尾楼曝光(视频)  " alt="习近平接班人后院起火 400亿烂尾楼曝光(视频)  "></a></p>
 <p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894108.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪水滔天 习近平隐身内情曝光        >-009fcc?logoWidth=1" title="洪水滔天 习近平隐身内情曝光  " alt="洪水滔天 习近平隐身内情曝光  "></a></p>
 <p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894079.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普强力回击港版国安法：没打算和习近平对话 >-009fcc?logoWidth=1" title="川普强力回击港版国安法：没打算和习近平对话  " alt="川普强力回击港版国安法：没打算和习近平对话  "></a></p>
 <p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894035.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普签行政令：全面终止香港特殊待遇     >-009fcc?logoWidth=1" title="川普签行政令：全面终止香港特殊待遇  " alt="川普签行政令：全面终止香港特殊待遇  "></a></p>
-<p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894004.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美将取缔微信抖音 华人换平台        >-009fcc?logoWidth=1" title="美将取缔微信抖音 华人换平台  " alt="美将取缔微信抖音 华人换平台  "></a></p>
-<p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/14/a102893831.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/61万港人投票民主派初选 中共恐慌宣称“犯法>-009fcc?logoWidth=1" title="61万港人投票民主派初选 中共恐慌宣称“犯法”  " alt="61万港人投票民主派初选 中共恐慌宣称“犯法”  "></a></p>
-<p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/14/a102893713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥“南海声明”全文翻译         >-009fcc?logoWidth=1" title="蓬佩奥“南海声明”全文翻译  " alt="蓬佩奥“南海声明”全文翻译  "></a></p>
+<p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102893992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦再度受访：我们的时间不多了！(视频) >-009fcc?logoWidth=1" title="闫丽梦再度受访：我们的时间不多了！(视频)  " alt="闫丽梦再度受访：我们的时间不多了！(视频)  "></a></p>
+<p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894202.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国军舰南海巡航 中美擦枪走火风险大增   >-009fcc?logoWidth=1" title="美国军舰南海巡航 中美擦枪走火风险大增  " alt="美国军舰南海巡航 中美擦枪走火风险大增  "></a></p>
 <p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东京都疫情趋严峻 日媒：将采最高级警戒   >-009fcc?logoWidth=1" title="东京都疫情趋严峻 日媒：将采最高级警戒  " alt="东京都疫情趋严峻 日媒：将采最高级警戒  "></a></p>
 <p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共触目惊心的经济掠夺（7）        >-009fcc?logoWidth=1" title="中共触目惊心的经济掠夺（7）  " alt="中共触目惊心的经济掠夺（7）  "></a></p>
 <p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝已成祸害？中美学者结论一致     >-009fcc?logoWidth=1" title="三峡大坝已成祸害？中美学者结论一致  " alt="三峡大坝已成祸害？中美学者结论一致  "></a></p>
 <p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894141.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重磅！川普签署《香港自治法案》全面剥夺香港特>-009fcc?logoWidth=1" title="重磅！川普签署《香港自治法案》全面剥夺香港特殊地位  " alt="重磅！川普签署《香港自治法案》全面剥夺香港特殊地位  "></a></p>
-<p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5顶级儿科专家支持开学 《华日》编辑部批民主>-009fcc?logoWidth=1" title="5顶级儿科专家支持开学 《华日》编辑部批民主党作梗  " alt="5顶级儿科专家支持开学 《华日》编辑部批民主党作梗  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/decedg3780/djy/blob/master/gb/20/7/2/n12228522.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代：别觉得可栽赃在川普身上 你栽不了  >-009fcc?logoWidth=1" title="红二代：别觉得可栽赃在川普身上 你栽不了  " alt="红二代：别觉得可栽赃在川普身上 你栽不了  "></a></p>
 <p><a href="https://github.com/decedg3780/djy/blob/master/gb/20/7/14/n12256290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共扼杀香港自由 白宫：我们与港人站一起  >-009fcc?logoWidth=1" title="中共扼杀香港自由 白宫：我们与港人站一起  " alt="中共扼杀香港自由 白宫：我们与港人站一起  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/decedg3780/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/decedg3780/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/decedg3780/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/decedg3780/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/decedg3780/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/decedg3780/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/decedg3780/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/decedg3780/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/decedg3780/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/decedg3780/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/t2222">git.io/t2222</a></div>
+<div align="center">短网址: <a href="https://git.io/tcccc">git.io/tcccc</a></div>
 

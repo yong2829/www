@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/obofkq3490/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/obofkq3490/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/33333333">git.io/33333333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j33">x.co/j33</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/quuuu">git.io/quuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3332">x.co/3332</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,7 +27,7 @@
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894212.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美妇人到安养院当洗碗工 只为与失智丈夫见面 >-009fcc?logoWidth=1" title="美妇人到安养院当洗碗工 只为与失智丈夫见面  " alt="美妇人到安养院当洗碗工 只为与失智丈夫见面  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/2/n12228522.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代：别觉得可栽赃在川普身上 你栽不了  >-009fcc?logoWidth=1" title="红二代：别觉得可栽赃在川普身上 你栽不了  " alt="红二代：别觉得可栽赃在川普身上 你栽不了  "></a></p>
-<p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/15/n12256432.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江西洪水灾情严重的原因           >-009fcc?logoWidth=1" title="江西洪水灾情严重的原因  " alt="江西洪水灾情严重的原因  "></a></p>
+<p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/15/n12256432.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江西洪水灾情为何如此严重          >-009fcc?logoWidth=1" title="江西洪水灾情为何如此严重  " alt="江西洪水灾情为何如此严重  "></a></p>
 <p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/14/n12256290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共扼杀香港自由 白宫：我们与港人站一起  >-009fcc?logoWidth=1" title="中共扼杀香港自由 白宫：我们与港人站一起  " alt="中共扼杀香港自由 白宫：我们与港人站一起  "></a></p>
 <p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/14/n12254613.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：洪水滔天 中共高层为何不见踪影？   >-009fcc?logoWidth=1" title="田云：洪水滔天 中共高层为何不见踪影？  " alt="田云：洪水滔天 中共高层为何不见踪影？  "></a></p>
 <p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/14/n12255677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普发表演讲：签署香港自治法        >-009fcc?logoWidth=1" title="川普发表演讲：签署香港自治法  " alt="川普发表演讲：签署香港自治法  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/obofkq3490/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/obofkq3490/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/obofkq3490/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/obofkq3490/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/obofkq3490/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/obofkq3490/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/obofkq3490/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/obofkq3490/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/33333333">git.io/33333333</a></div>
+<div align="center">短网址: <a href="https://git.io/quuuu">git.io/quuuu</a></div>
 

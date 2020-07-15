@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/decedg3780/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/decedg3780/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gcccc">git.io/gcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u55">x.co/u55</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/q5555">git.io/q5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/mdd">x.co/mdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/小粉红回国救父再爆黑幕 检察官索贿30万  >-009fcc?logoWidth=1" title="小粉红回国救父再爆黑幕 检察官索贿30万  " alt="小粉红回国救父再爆黑幕 检察官索贿30万  "></a></p>
 <p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平接班人后院起火 400亿烂尾楼曝光(视>-009fcc?logoWidth=1" title="习近平接班人后院起火 400亿烂尾楼曝光(视频)  " alt="习近平接班人后院起火 400亿烂尾楼曝光(视频)  "></a></p>
-<p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894108.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪水滔天 习近平隐身内情曝光        >-009fcc?logoWidth=1" title="洪水滔天 习近平隐身内情曝光  " alt="洪水滔天 习近平隐身内情曝光  "></a></p>
+<p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894108.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国洪水滔天 高层内斗凶险 习近平行踪诡异 >-009fcc?logoWidth=1" title="中国洪水滔天 高层内斗凶险 习近平行踪诡异  " alt="中国洪水滔天 高层内斗凶险 习近平行踪诡异  "></a></p>
 <p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894079.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普强力回击港版国安法：没打算和习近平对话 >-009fcc?logoWidth=1" title="川普强力回击港版国安法：没打算和习近平对话  " alt="川普强力回击港版国安法：没打算和习近平对话  "></a></p>
 <p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894035.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普签行政令：全面终止香港特殊待遇     >-009fcc?logoWidth=1" title="川普签行政令：全面终止香港特殊待遇  " alt="川普签行政令：全面终止香港特殊待遇  "></a></p>
 <p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102893992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦再度受访：我们的时间不多了！(视频) >-009fcc?logoWidth=1" title="闫丽梦再度受访：我们的时间不多了！(视频)  " alt="闫丽梦再度受访：我们的时间不多了！(视频)  "></a></p>
+<p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894296.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥晒爱犬玩耍小熊维尼 引发联想     >-009fcc?logoWidth=1" title="蓬佩奥晒爱犬玩耍小熊维尼 引发联想  " alt="蓬佩奥晒爱犬玩耍小熊维尼 引发联想  "></a></p>
 <p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894255.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林郑无能 香港疫情骤升 10天暴增近200例>-009fcc?logoWidth=1" title="林郑无能 香港疫情骤升 10天暴增近200例  " alt="林郑无能 香港疫情骤升 10天暴增近200例  "></a></p>
 <p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894238.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/家中水淹1.5米深仍不肯走 江西老人透心酸内>-009fcc?logoWidth=1" title="家中水淹1.5米深仍不肯走 江西老人透心酸内情  " alt="家中水淹1.5米深仍不肯走 江西老人透心酸内情  "></a></p>
 <p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894212.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美妇人到安养院当洗碗工 只为与失智丈夫见面 >-009fcc?logoWidth=1" title="美妇人到安养院当洗碗工 只为与失智丈夫见面  " alt="美妇人到安养院当洗碗工 只为与失智丈夫见面  "></a></p>
 <p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894190.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“停止迫害法轮功” 美议员谴中共卑鄙    >-009fcc?logoWidth=1" title="“停止迫害法轮功” 美议员谴中共卑鄙  " alt="“停止迫害法轮功” 美议员谴中共卑鄙  "></a></p>
-<p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东京都疫情趋严峻 日媒：将采最高级警戒   >-009fcc?logoWidth=1" title="东京都疫情趋严峻 日媒：将采最高级警戒  " alt="东京都疫情趋严峻 日媒：将采最高级警戒  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/decedg3780/djy/blob/master/gb/20/7/2/n12228522.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代：别觉得可栽赃在川普身上 你栽不了  >-009fcc?logoWidth=1" title="红二代：别觉得可栽赃在川普身上 你栽不了  " alt="红二代：别觉得可栽赃在川普身上 你栽不了  "></a></p>
 <p><a href="https://github.com/decedg3780/djy/blob/master/gb/20/7/15/n12256432.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江西洪水灾情严重的原因           >-009fcc?logoWidth=1" title="江西洪水灾情严重的原因  " alt="江西洪水灾情严重的原因  "></a></p>
@@ -39,7 +39,6 @@
 <p><a href="https://github.com/decedg3780/djy/blob/master/gb/20/7/15/n12256936.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/九江崩堤村庄全被淹 灾民：什么都没了    >-009fcc?logoWidth=1" title="九江崩堤村庄全被淹 灾民：什么都没了  " alt="九江崩堤村庄全被淹 灾民：什么都没了  "></a></p>
 <p><a href="https://github.com/decedg3780/djy/blob/master/gb/20/7/14/n12256006.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国遭遇创纪录洪水 三峡大坝再遭质疑    >-009fcc?logoWidth=1" title="中国遭遇创纪录洪水 三峡大坝再遭质疑  " alt="中国遭遇创纪录洪水 三峡大坝再遭质疑  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共触目惊心的经济掠夺（7）        >-009fcc?logoWidth=1" title="中共触目惊心的经济掠夺（7）  " alt="中共触目惊心的经济掠夺（7）  "></a></p>
 <p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894202.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国军舰南海巡航 中美擦枪走火风险大增   >-009fcc?logoWidth=1" title="美国军舰南海巡航 中美擦枪走火风险大增  " alt="美国军舰南海巡航 中美擦枪走火风险大增  "></a></p>
 <p><a href="https://github.com/decedg3780/djy/blob/master/gb/20/7/14/n12255064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英宣布禁华为5G 华为英董事会主席提前辞职 >-009fcc?logoWidth=1" title="英宣布禁华为5G 华为英董事会主席提前辞职  " alt="英宣布禁华为5G 华为英董事会主席提前辞职  "></a></p>
 <p><a href="https://github.com/decedg3780/djy/blob/master/gb/20/7/15/n12256718.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/释疫情6警讯 阎丽梦：没太多时间      >-009fcc?logoWidth=1" title="释疫情6警讯 阎丽梦：没太多时间  " alt="释疫情6警讯 阎丽梦：没太多时间  "></a></p>
@@ -486,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/decedg3780/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/decedg3780/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/decedg3780/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/decedg3780/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/decedg3780/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/decedg3780/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/decedg3780/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/decedg3780/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/decedg3780/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/decedg3780/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gcccc">git.io/gcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/q5555">git.io/q5555</a></div>
 

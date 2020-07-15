@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/obofkq3490/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/obofkq3490/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f2222">git.io/f2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p2p">x.co/p2p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jaaaa">git.io/jaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j77">x.co/j77</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,7 +20,7 @@
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894108.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国洪水滔天 高层内斗凶险 习近平行踪诡异 >-009fcc?logoWidth=1" title="中国洪水滔天 高层内斗凶险 习近平行踪诡异  " alt="中国洪水滔天 高层内斗凶险 习近平行踪诡异  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894079.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普强力回击港版国安法：没打算和习近平对话 >-009fcc?logoWidth=1" title="川普强力回击港版国安法：没打算和习近平对话  " alt="川普强力回击港版国安法：没打算和习近平对话  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894035.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普签行政令：全面终止香港特殊待遇     >-009fcc?logoWidth=1" title="川普签行政令：全面终止香港特殊待遇  " alt="川普签行政令：全面终止香港特殊待遇  "></a></p>
-<p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894474.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国国务卿蓬佩奥新闻发布会（同声翻译）   >-009fcc?logoWidth=1" title="美国国务卿蓬佩奥新闻发布会（同声翻译）  " alt="美国国务卿蓬佩奥新闻发布会（同声翻译）  "></a></p>
+<p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894430.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林晓旭：阎丽梦曝新证 全球可向世卫与中共追责>-009fcc?logoWidth=1" title="林晓旭：阎丽梦曝新证 全球可向世卫与中共追责  " alt="林晓旭：阎丽梦曝新证 全球可向世卫与中共追责  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894385.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洛阳刘富村被逼迁 村民扛煤气罐反抗     >-009fcc?logoWidth=1" title="洛阳刘富村被逼迁 村民扛煤气罐反抗  " alt="洛阳刘富村被逼迁 村民扛煤气罐反抗  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894390.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州贫困县负债400亿建设 众多项目烂尾  >-009fcc?logoWidth=1" title="贵州贫困县负债400亿建设 众多项目烂尾  " alt="贵州贫困县负债400亿建设 众多项目烂尾  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/12/a102892257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦再度受访：我们的时间不多了！     >-009fcc?logoWidth=1" title="闫丽梦再度受访：我们的时间不多了！  " alt="闫丽梦再度受访：我们的时间不多了！  "></a></p>
@@ -31,7 +31,7 @@
 <p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/15/n12256432.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江西洪水灾情为何如此严重          >-009fcc?logoWidth=1" title="江西洪水灾情为何如此严重  " alt="江西洪水灾情为何如此严重  "></a></p>
 <p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/14/n12256290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共扼杀香港自由 白宫：我们与港人站一起  >-009fcc?logoWidth=1" title="中共扼杀香港自由 白宫：我们与港人站一起  " alt="中共扼杀香港自由 白宫：我们与港人站一起  "></a></p>
 <p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/14/n12254613.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：洪水滔天 中共高层为何不见踪影？   >-009fcc?logoWidth=1" title="田云：洪水滔天 中共高层为何不见踪影？  " alt="田云：洪水滔天 中共高层为何不见踪影？  "></a></p>
-<p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/14/n12254987.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“党领导经济”陷泥潭 遭朱镕基旧部质疑   >-009fcc?logoWidth=1" title="“党领导经济”陷泥潭 遭朱镕基旧部质疑  " alt="“党领导经济”陷泥潭 遭朱镕基旧部质疑  "></a></p>
+<p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/14/n12254987.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“党领导经济”陷泥潭 中共内部也起争议   >-009fcc?logoWidth=1" title="“党领导经济”陷泥潭 中共内部也起争议  " alt="“党领导经济”陷泥潭 中共内部也起争议  "></a></p>
 <p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/14/n12256086.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普签署香港自治法 中共将面临何种制裁   >-009fcc?logoWidth=1" title="川普签署香港自治法 中共将面临何种制裁  " alt="川普签署香港自治法 中共将面临何种制裁  "></a></p>
 <p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/14/n12254429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京女子监狱严防“狱情泄露”     >-009fcc?logoWidth=1" title="组图：北京女子监狱严防“狱情泄露”  " alt="组图：北京女子监狱严防“狱情泄露”  "></a></p>
 <p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/14/n12256067.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：国人对中共满意度超93？网友讥讽华春莹>-009fcc?logoWidth=1" title="袁斌：国人对中共满意度超93？网友讥讽华春莹  " alt="袁斌：国人对中共满意度超93？网友讥讽华春莹  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/obofkq3490/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/obofkq3490/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/obofkq3490/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/obofkq3490/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/obofkq3490/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/obofkq3490/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/obofkq3490/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/obofkq3490/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/f2222">git.io/f2222</a></div>
+<div align="center">短网址: <a href="https://git.io/jaaaa">git.io/jaaaa</a></div>
 

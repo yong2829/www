@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/obofkq3490/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/obofkq3490/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/neeee">git.io/neeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2999">x.co/2999</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ebbbb">git.io/ebbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j77">x.co/j77</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894108.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国洪水滔天 高层内斗凶险 习近平行踪诡异 >-009fcc?logoWidth=1" title="中国洪水滔天 高层内斗凶险 习近平行踪诡异  " alt="中国洪水滔天 高层内斗凶险 习近平行踪诡异  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894079.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普强力回击港版国安法：没打算和习近平对话 >-009fcc?logoWidth=1" title="川普强力回击港版国安法：没打算和习近平对话  " alt="川普强力回击港版国安法：没打算和习近平对话  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894035.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普签行政令：全面终止香港特殊待遇     >-009fcc?logoWidth=1" title="川普签行政令：全面终止香港特殊待遇  " alt="川普签行政令：全面终止香港特殊待遇  "></a></p>
+<p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894474.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国国务卿蓬佩奥新闻发布会（同声翻译）   >-009fcc?logoWidth=1" title="美国国务卿蓬佩奥新闻发布会（同声翻译）  " alt="美国国务卿蓬佩奥新闻发布会（同声翻译）  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894385.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洛阳刘富村被逼迁 村民扛煤气罐反抗     >-009fcc?logoWidth=1" title="洛阳刘富村被逼迁 村民扛煤气罐反抗  " alt="洛阳刘富村被逼迁 村民扛煤气罐反抗  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894390.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州贫困县负债400亿建设 众多项目烂尾  >-009fcc?logoWidth=1" title="贵州贫困县负债400亿建设 众多项目烂尾  " alt="贵州贫困县负债400亿建设 众多项目烂尾  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/12/a102892257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦再度受访：我们的时间不多了！     >-009fcc?logoWidth=1" title="闫丽梦再度受访：我们的时间不多了！  " alt="闫丽梦再度受访：我们的时间不多了！  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894296.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥晒爱犬玩耍小熊维尼 引发联想     >-009fcc?logoWidth=1" title="蓬佩奥晒爱犬玩耍小熊维尼 引发联想  " alt="蓬佩奥晒爱犬玩耍小熊维尼 引发联想  "></a></p>
-<p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894255.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林郑无能 香港疫情骤升 10天暴增近200例>-009fcc?logoWidth=1" title="林郑无能 香港疫情骤升 10天暴增近200例  " alt="林郑无能 香港疫情骤升 10天暴增近200例  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/2/n12228522.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代：别觉得可栽赃在川普身上 你栽不了  >-009fcc?logoWidth=1" title="红二代：别觉得可栽赃在川普身上 你栽不了  " alt="红二代：别觉得可栽赃在川普身上 你栽不了  "></a></p>
 <p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/15/n12257412.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国15天内结束香港哪些待遇 一文看懂   >-009fcc?logoWidth=1" title="美国15天内结束香港哪些待遇 一文看懂  " alt="美国15天内结束香港哪些待遇 一文看懂  "></a></p>
@@ -486,7 +486,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/obofkq3490/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/obofkq3490/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/obofkq3490/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/obofkq3490/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/obofkq3490/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/obofkq3490/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/neeee">git.io/neeee</a></div>
+<div align="center">短网址: <a href="https://git.io/ebbbb">git.io/ebbbb</a></div>
 

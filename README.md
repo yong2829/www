@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/decedg3780/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/decedg3780/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cssss">git.io/cssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa7">x.co/aa7</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pmmmm">git.io/pmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/edd">x.co/edd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,7 +20,7 @@
 <p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894108.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国洪水滔天 高层内斗凶险 习近平行踪诡异 >-009fcc?logoWidth=1" title="中国洪水滔天 高层内斗凶险 习近平行踪诡异  " alt="中国洪水滔天 高层内斗凶险 习近平行踪诡异  "></a></p>
 <p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894079.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普强力回击港版国安法：没打算和习近平对话 >-009fcc?logoWidth=1" title="川普强力回击港版国安法：没打算和习近平对话  " alt="川普强力回击港版国安法：没打算和习近平对话  "></a></p>
 <p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894035.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普签行政令：全面终止香港特殊待遇     >-009fcc?logoWidth=1" title="川普签行政令：全面终止香港特殊待遇  " alt="川普签行政令：全面终止香港特殊待遇  "></a></p>
-<p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/12/a102892257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦再发声 ：有很多证据 将全说出    >-009fcc?logoWidth=1" title="闫丽梦再发声 ：有很多证据 将全说出  " alt="闫丽梦再发声 ：有很多证据 将全说出  "></a></p>
+<p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/12/a102892257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦再度受访：我们的时间不多了！     >-009fcc?logoWidth=1" title="闫丽梦再度受访：我们的时间不多了！  " alt="闫丽梦再度受访：我们的时间不多了！  "></a></p>
 <p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894296.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥晒爱犬玩耍小熊维尼 引发联想     >-009fcc?logoWidth=1" title="蓬佩奥晒爱犬玩耍小熊维尼 引发联想  " alt="蓬佩奥晒爱犬玩耍小熊维尼 引发联想  "></a></p>
 <p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894255.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林郑无能 香港疫情骤升 10天暴增近200例>-009fcc?logoWidth=1" title="林郑无能 香港疫情骤升 10天暴增近200例  " alt="林郑无能 香港疫情骤升 10天暴增近200例  "></a></p>
 <p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894238.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/家中水淹1.5米深仍不肯走 江西老人透心酸内>-009fcc?logoWidth=1" title="家中水淹1.5米深仍不肯走 江西老人透心酸内情  " alt="家中水淹1.5米深仍不肯走 江西老人透心酸内情  "></a></p>
@@ -40,13 +40,13 @@
 <p><a href="https://github.com/decedg3780/djy/blob/master/gb/20/7/14/n12256006.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国遭遇创纪录洪水 三峡大坝再遭质疑    >-009fcc?logoWidth=1" title="中国遭遇创纪录洪水 三峡大坝再遭质疑  " alt="中国遭遇创纪录洪水 三峡大坝再遭质疑  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894202.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国军舰南海巡航 中美擦枪走火风险大增   >-009fcc?logoWidth=1" title="美国军舰南海巡航 中美擦枪走火风险大增  " alt="美国军舰南海巡航 中美擦枪走火风险大增  "></a></p>
+<p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894352.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/鄱阳湖之殇，告诉你这一切的根源       >-009fcc?logoWidth=1" title="鄱阳湖之殇，告诉你这一切的根源  " alt="鄱阳湖之殇，告诉你这一切的根源  "></a></p>
 <p><a href="https://github.com/decedg3780/djy/blob/master/gb/20/7/14/n12255064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英宣布禁华为5G 华为英董事会主席提前辞职 >-009fcc?logoWidth=1" title="英宣布禁华为5G 华为英董事会主席提前辞职  " alt="英宣布禁华为5G 华为英董事会主席提前辞职  "></a></p>
 <p><a href="https://github.com/decedg3780/djy/blob/master/gb/20/7/15/n12256718.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/释疫情6警讯 阎丽梦：没太多时间      >-009fcc?logoWidth=1" title="释疫情6警讯 阎丽梦：没太多时间  " alt="释疫情6警讯 阎丽梦：没太多时间  "></a></p>
-<p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/14/a102893746.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润教授被清华以“道德败坏”为由革职   >-009fcc?logoWidth=1" title="许章润教授被清华以“道德败坏”为由革职  " alt="许章润教授被清华以“道德败坏”为由革职  "></a></p>
+<p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/15/a102894152.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝军车待命保武汉弃鄱阳 洪水来袭民众逃荒避>-009fcc?logoWidth=1" title="网曝军车待命保武汉弃鄱阳 洪水来袭民众逃荒避难  " alt="网曝军车待命保武汉弃鄱阳 洪水来袭民众逃荒避难  "></a></p>
 <p><a href="https://github.com/decedg3780/djy/blob/master/gb/20/7/15/n12256441.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：欢迎英国禁止华为参与5G网络    >-009fcc?logoWidth=1" title="蓬佩奥：欢迎英国禁止华为参与5G网络  " alt="蓬佩奥：欢迎英国禁止华为参与5G网络  "></a></p>
 <p><a href="https://github.com/decedg3780/djy/blob/master/gb/20/7/14/n12255875.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/时尚大V在上海街头阻止性侵 被咬掉耳朵   >-009fcc?logoWidth=1" title="时尚大V在上海街头阻止性侵 被咬掉耳朵  " alt="时尚大V在上海街头阻止性侵 被咬掉耳朵  "></a></p>
 <p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/14/a102893967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪水滔天李克强隐身 是主动撂挑子还是被习近平>-009fcc?logoWidth=1" title="洪水滔天李克强隐身 是主动撂挑子还是被习近平雪藏?  " alt="洪水滔天李克强隐身 是主动撂挑子还是被习近平雪藏?  "></a></p>
-<p><a href="https://github.com/decedg3780/ntdtv/blob/master/gb/2020/07/14/a102893656.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒出包：40米长大砍刀 4万人献血5万吨 >-009fcc?logoWidth=1" title="党媒出包：40米长大砍刀 4万人献血5万吨  " alt="党媒出包：40米长大砍刀 4万人献血5万吨  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -484,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/decedg3780/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/decedg3780/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/decedg3780/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/decedg3780/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/decedg3780/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/decedg3780/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/decedg3780/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/decedg3780/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/decedg3780/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/decedg3780/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/cssss">git.io/cssss</a></div>
+<div align="center">短网址: <a href="https://git.io/pmmmm">git.io/pmmmm</a></div>
 

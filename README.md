@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/obofkq3490/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/obofkq3490/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/siiii">git.io/siiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/7aa">x.co/7aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e5555">git.io/e5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppk">x.co/ppk</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,13 +40,12 @@
 <p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/15/n12256544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：美英祭出反制大动作 中共心惊     >-009fcc?logoWidth=1" title="田云：美英祭出反制大动作 中共心惊  " alt="田云：美英祭出反制大动作 中共心惊  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894202.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国军舰南海巡航 中美擦枪走火风险大增   >-009fcc?logoWidth=1" title="美国军舰南海巡航 中美擦枪走火风险大增  " alt="美国军舰南海巡航 中美擦枪走火风险大增  "></a></p>
-<p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/14/n12256006.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国遭遇创纪录洪水 三峡大坝再遭质疑    >-009fcc?logoWidth=1" title="中国遭遇创纪录洪水 三峡大坝再遭质疑  " alt="中国遭遇创纪录洪水 三峡大坝再遭质疑  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894397.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/解析“贵州怪声”之谜 （下集）：末日预言的预>-009fcc?logoWidth=1" title="解析“贵州怪声”之谜 （下集）：末日预言的预警！？  " alt="解析“贵州怪声”之谜 （下集）：末日预言的预警！？  "></a></p>
-<p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/14/n12255064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英宣布禁华为5G 华为英董事会主席提前辞职 >-009fcc?logoWidth=1" title="英宣布禁华为5G 华为英董事会主席提前辞职  " alt="英宣布禁华为5G 华为英董事会主席提前辞职  "></a></p>
-<p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/15/n12256718.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/释疫情6警讯 阎丽梦：没太多时间      >-009fcc?logoWidth=1" title="释疫情6警讯 阎丽梦：没太多时间  " alt="释疫情6警讯 阎丽梦：没太多时间  "></a></p>
+<p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/15/n12257576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美外交官：或就南海问题制裁中共官员     >-009fcc?logoWidth=1" title="美外交官：或就南海问题制裁中共官员  " alt="美外交官：或就南海问题制裁中共官员  "></a></p>
+<p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/15/n12256586.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：李克强露面难掩中共高层悬空状态    >-009fcc?logoWidth=1" title="钟原：李克强露面难掩中共高层悬空状态  " alt="钟原：李克强露面难掩中共高层悬空状态  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瘦小腹必备！燃烧腹部脂肪的15种食物（组图）>-009fcc?logoWidth=1" title="瘦小腹必备！燃烧腹部脂肪的15种食物（组图）  " alt="瘦小腹必备！燃烧腹部脂肪的15种食物（组图）  "></a></p>
-<p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/15/n12256441.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：欢迎英国禁止华为参与5G网络    >-009fcc?logoWidth=1" title="蓬佩奥：欢迎英国禁止华为参与5G网络  " alt="蓬佩奥：欢迎英国禁止华为参与5G网络  "></a></p>
-<p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/14/n12255875.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/时尚大V在上海街头阻止性侵 被咬掉耳朵   >-009fcc?logoWidth=1" title="时尚大V在上海街头阻止性侵 被咬掉耳朵  " alt="时尚大V在上海街头阻止性侵 被咬掉耳朵  "></a></p>
+<p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/14/n12256006.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国遭遇创纪录洪水 三峡大坝再遭质疑    >-009fcc?logoWidth=1" title="中国遭遇创纪录洪水 三峡大坝再遭质疑  " alt="中国遭遇创纪录洪水 三峡大坝再遭质疑  "></a></p>
+<p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/15/n12256718.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/释疫情6警讯 阎丽梦：没太多时间      >-009fcc?logoWidth=1" title="释疫情6警讯 阎丽梦：没太多时间  " alt="释疫情6警讯 阎丽梦：没太多时间  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/14/a102893967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪水滔天李克强隐身 是主动撂挑子还是被习近平>-009fcc?logoWidth=1" title="洪水滔天李克强隐身 是主动撂挑子还是被习近平雪藏?  " alt="洪水滔天李克强隐身 是主动撂挑子还是被习近平雪藏?  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894152.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝军车待命保武汉弃鄱阳 洪水来袭民众逃荒避>-009fcc?logoWidth=1" title="网曝军车待命保武汉弃鄱阳 洪水来袭民众逃荒避难  " alt="网曝军车待命保武汉弃鄱阳 洪水来袭民众逃荒避难  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -486,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/obofkq3490/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/obofkq3490/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/obofkq3490/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/obofkq3490/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/obofkq3490/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/obofkq3490/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/obofkq3490/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/obofkq3490/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/siiii">git.io/siiii</a></div>
+<div align="center">短网址: <a href="https://git.io/e5555">git.io/e5555</a></div>
 

@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/obofkq3490/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/obofkq3490/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/njjjj">git.io/njjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/qaa">x.co/qaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cffff">git.io/cffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/344">x.co/344</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894108.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国洪水滔天 高层内斗凶险 习近平行踪诡异 >-009fcc?logoWidth=1" title="中国洪水滔天 高层内斗凶险 习近平行踪诡异  " alt="中国洪水滔天 高层内斗凶险 习近平行踪诡异  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894079.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普强力回击港版国安法：没打算和习近平对话 >-009fcc?logoWidth=1" title="川普强力回击港版国安法：没打算和习近平对话  " alt="川普强力回击港版国安法：没打算和习近平对话  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894035.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普签行政令：全面终止香港特殊待遇     >-009fcc?logoWidth=1" title="川普签行政令：全面终止香港特殊待遇  " alt="川普签行政令：全面终止香港特殊待遇  "></a></p>
+<p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共当局警告:淮河水系也将出现洪水     >-009fcc?logoWidth=1" title="中共当局警告:淮河水系也将出现洪水  " alt="中共当局警告:淮河水系也将出现洪水  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894637.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江洪峰“复式推进”还是回落？中新网自打脸 >-009fcc?logoWidth=1" title="长江洪峰“复式推进”还是回落？中新网自打脸  " alt="长江洪峰“复式推进”还是回落？中新网自打脸  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894657.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英封杀华为获美称许  蓬佩奥:愿共同打造安全>-009fcc?logoWidth=1" title="英封杀华为获美称许  蓬佩奥:愿共同打造安全5G  " alt="英封杀华为获美称许  蓬佩奥:愿共同打造安全5G  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894686.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外交人员疑涉间谍 澳议员吁驱逐百人   >-009fcc?logoWidth=1" title="中共外交人员疑涉间谍 澳议员吁驱逐百人  " alt="中共外交人员疑涉间谍 澳议员吁驱逐百人  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894678.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美维持F1签证豁免规定 留学生暂时无忧   >-009fcc?logoWidth=1" title="美维持F1签证豁免规定 留学生暂时无忧  " alt="美维持F1签证豁免规定 留学生暂时无忧  "></a></p>
-<p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登演讲引用毛泽东语录 被批“中国乔 ”  >-009fcc?logoWidth=1" title="拜登演讲引用毛泽东语录 被批“中国乔 ”  " alt="拜登演讲引用毛泽东语录 被批“中国乔 ”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/2/n12228522.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代：别觉得可栽赃在川普身上 你栽不了  >-009fcc?logoWidth=1" title="红二代：别觉得可栽赃在川普身上 你栽不了  " alt="红二代：别觉得可栽赃在川普身上 你栽不了  "></a></p>
 <p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/15/n12258352.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：限制华为等中企部分员工签证     >-009fcc?logoWidth=1" title="蓬佩奥：限制华为等中企部分员工签证  " alt="蓬佩奥：限制华为等中企部分员工签证  "></a></p>
@@ -40,14 +40,13 @@
 <p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/15/n12256936.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/九江崩堤村庄全被淹 灾民：什么都没了    >-009fcc?logoWidth=1" title="九江崩堤村庄全被淹 灾民：什么都没了  " alt="九江崩堤村庄全被淹 灾民：什么都没了  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894202.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国军舰南海巡航 中美擦枪走火风险大增   >-009fcc?logoWidth=1" title="美国军舰南海巡航 中美擦枪走火风险大增  " alt="美国军舰南海巡航 中美擦枪走火风险大增  "></a></p>
-<p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/15/n12256544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：美英祭出反制大动作 中共心惊     >-009fcc?logoWidth=1" title="田云：美英祭出反制大动作 中共心惊  " alt="田云：美英祭出反制大动作 中共心惊  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894397.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/解析“贵州怪声”之谜 （下集）：末日预言的预>-009fcc?logoWidth=1" title="解析“贵州怪声”之谜 （下集）：末日预言的预警！？  " alt="解析“贵州怪声”之谜 （下集）：末日预言的预警！？  "></a></p>
+<p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/15/n12256544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：美英祭出反制大动作 中共心惊     >-009fcc?logoWidth=1" title="田云：美英祭出反制大动作 中共心惊  " alt="田云：美英祭出反制大动作 中共心惊  "></a></p>
 <p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/15/n12258150.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新书《隐藏的手：中共重塑世界手段揭秘》   >-009fcc?logoWidth=1" title="新书《隐藏的手：中共重塑世界手段揭秘》  " alt="新书《隐藏的手：中共重塑世界手段揭秘》  "></a></p>
-<p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/15/n12258284.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共向海外公民征税45 员工考虑离开香港  >-009fcc?logoWidth=1" title="中共向海外公民征税45 员工考虑离开香港  " alt="中共向海外公民征税45 员工考虑离开香港  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瘦小腹必备！燃烧腹部脂肪的15种食物（组图）>-009fcc?logoWidth=1" title="瘦小腹必备！燃烧腹部脂肪的15种食物（组图）  " alt="瘦小腹必备！燃烧腹部脂肪的15种食物（组图）  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894437.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第一回 纣王女娲宫进香           >-009fcc?logoWidth=1" title="第一回 纣王女娲宫进香  " alt="第一回 纣王女娲宫进香  "></a></p>
+<p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/15/n12258284.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共向海外公民征税45 员工考虑离开香港  >-009fcc?logoWidth=1" title="中共向海外公民征税45 员工考虑离开香港  " alt="中共向海外公民征税45 员工考虑离开香港  "></a></p>
 <p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/15/n12258416.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美总统候选人拜登公然引用《毛语录》 被美国网>-009fcc?logoWidth=1" title="美总统候选人拜登公然引用《毛语录》 被美国网友骂翻  " alt="美总统候选人拜登公然引用《毛语录》 被美国网友骂翻  "></a></p>
-<p><a href="https://github.com/obofkq3490/djy/blob/master/gb/20/7/15/n12256432.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江西洪水灾情为何如此严重          >-009fcc?logoWidth=1" title="江西洪水灾情为何如此严重  " alt="江西洪水灾情为何如此严重  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894477.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥嘲讽谁？/川普终于出手 重点在这里……>-009fcc?logoWidth=1" title="蓬佩奥嘲讽谁？/川普终于出手 重点在这里……  " alt="蓬佩奥嘲讽谁？/川普终于出手 重点在这里……  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/14/a102893967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪水滔天李克强隐身 是主动撂挑子还是被习近平>-009fcc?logoWidth=1" title="洪水滔天李克强隐身 是主动撂挑子还是被习近平雪藏?  " alt="洪水滔天李克强隐身 是主动撂挑子还是被习近平雪藏?  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/obofkq3490/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/obofkq3490/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/obofkq3490/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/obofkq3490/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/obofkq3490/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/obofkq3490/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/obofkq3490/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/obofkq3490/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/njjjj">git.io/njjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/cffff">git.io/cffff</a></div>
 

@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/obofkq3490/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/obofkq3490/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hrrrr">git.io/hrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aan">x.co/aan</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qzzzz">git.io/qzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j66">x.co/j66</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,9 +20,9 @@
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894108.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国洪水滔天 高层内斗凶险 习近平行踪诡异 >-009fcc?logoWidth=1" title="中国洪水滔天 高层内斗凶险 习近平行踪诡异  " alt="中国洪水滔天 高层内斗凶险 习近平行踪诡异  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894079.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普强力回击港版国安法：没打算和习近平对话 >-009fcc?logoWidth=1" title="川普强力回击港版国安法：没打算和习近平对话  " alt="川普强力回击港版国安法：没打算和习近平对话  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894035.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普签行政令：全面终止香港特殊待遇     >-009fcc?logoWidth=1" title="川普签行政令：全面终止香港特殊待遇  " alt="川普签行政令：全面终止香港特殊待遇  "></a></p>
-<p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普严厉打击黑帮MS13  头目将面临死刑 >-009fcc?logoWidth=1" title="川普严厉打击黑帮MS13  头目将面临死刑  " alt="川普严厉打击黑帮MS13  头目将面临死刑  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894747.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普签署法案 要中共对压迫港人负责     >-009fcc?logoWidth=1" title="川普签署法案 要中共对压迫港人负责  " alt="川普签署法案 要中共对压迫港人负责  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共当局警告:淮河水系也将出现洪水     >-009fcc?logoWidth=1" title="中共当局警告:淮河水系也将出现洪水  " alt="中共当局警告:淮河水系也将出现洪水  "></a></p>
+<p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中储粮“辟谣”劣质粮 网友不买张      >-009fcc?logoWidth=1" title="中储粮“辟谣”劣质粮 网友不买张  " alt="中储粮“辟谣”劣质粮 网友不买张  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894637.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江洪峰“复式推进”还是回落？中新网自打脸 >-009fcc?logoWidth=1" title="长江洪峰“复式推进”还是回落？中新网自打脸  " alt="长江洪峰“复式推进”还是回落？中新网自打脸  "></a></p>
 <p><a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/2020/07/15/a102894723.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美对华为签证制裁 蓬佩奥:中共是最大威胁  >-009fcc?logoWidth=1" title="美对华为签证制裁 蓬佩奥:中共是最大威胁  " alt="美对华为签证制裁 蓬佩奥:中共是最大威胁  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/obofkq3490/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/obofkq3490/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/obofkq3490/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/obofkq3490/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/obofkq3490/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/obofkq3490/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/obofkq3490/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/obofkq3490/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/obofkq3490/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hrrrr">git.io/hrrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/qzzzz">git.io/qzzzz</a></div>
 

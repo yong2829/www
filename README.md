@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tbrben3505/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tbrben3505/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iyyyy">git.io/iyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ndd">x.co/ndd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bjjjj">git.io/bjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3888">x.co/3888</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/16/a102894906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卫星抓到三峡大坝“超级泄洪” 王维洛：洪水是>-009fcc?logoWidth=1" title="卫星抓到三峡大坝“超级泄洪” 王维洛：洪水是人为的  " alt="卫星抓到三峡大坝“超级泄洪” 王维洛：洪水是人为的  "></a></p>
 <p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/16/a102894915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大凶之兆！习近平保党抛新定位        >-009fcc?logoWidth=1" title="大凶之兆！习近平保党抛新定位  " alt="大凶之兆！习近平保党抛新定位  "></a></p>
+<p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/16/a102894891.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京卫戍区司令换人 北戴河会前高层内斗升级 >-009fcc?logoWidth=1" title="北京卫戍区司令换人 北戴河会前高层内斗升级  " alt="北京卫戍区司令换人 北戴河会前高层内斗升级  "></a></p>
 <p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/15/a102894797.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共购美玉米创单日新高 美智库:北京力避关系>-009fcc?logoWidth=1" title="中共购美玉米创单日新高 美智库:北京力避关系崩盘  " alt="中共购美玉米创单日新高 美智库:北京力避关系崩盘  "></a></p>
 <p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/15/a102894705.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/牺牲农村保城市 鄱阳湖“主动决堤”视频曝光 >-009fcc?logoWidth=1" title="牺牲农村保城市 鄱阳湖“主动决堤”视频曝光  " alt="牺牲农村保城市 鄱阳湖“主动决堤”视频曝光  "></a></p>
 <p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/15/a102894635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/称武统是唯一选项 中共国安委专家促启动8大准>-009fcc?logoWidth=1" title="称武统是唯一选项 中共国安委专家促启动8大准备  " alt="称武统是唯一选项 中共国安委专家促启动8大准备  "></a></p>
-<p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/15/a102894541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登演讲引用毛泽东语录 被批“中国乔 ”  >-009fcc?logoWidth=1" title="拜登演讲引用毛泽东语录 被批“中国乔 ”  " alt="拜登演讲引用毛泽东语录 被批“中国乔 ”  "></a></p>
+<p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/16/a102894992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“红朝发言人脸谱”火了 三大战狼引热议(视频>-009fcc?logoWidth=1" title="“红朝发言人脸谱”火了 三大战狼引热议(视频)  " alt="“红朝发言人脸谱”火了 三大战狼引热议(视频)  "></a></p>
 <p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/16/a102894955.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共解体在即，呼吁全面收集其罪证      >-009fcc?logoWidth=1" title="中共解体在即，呼吁全面收集其罪证  " alt="中共解体在即，呼吁全面收集其罪证  "></a></p>
 <p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/16/a102894945.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：美中对话性质已变 中共领导人明白这一>-009fcc?logoWidth=1" title="蓬佩奥：美中对话性质已变 中共领导人明白这一点  " alt="蓬佩奥：美中对话性质已变 中共领导人明白这一点  "></a></p>
 <p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/16/a102894940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沃尔玛规定顾客戴口罩 全美商店20日起实  >-009fcc?logoWidth=1" title="沃尔玛规定顾客戴口罩 全美商店20日起实  " alt="沃尔玛规定顾客戴口罩 全美商店20日起实  "></a></p>
 <p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/16/a102894908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/电锯还插著电！科技富豪命丧豪华公寓 遗体遭肢>-009fcc?logoWidth=1" title="电锯还插著电！科技富豪命丧豪华公寓 遗体遭肢解  " alt="电锯还插著电！科技富豪命丧豪华公寓 遗体遭肢解  "></a></p>
-<p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/16/a102894899.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“受不了”隔离再筛检 巴西总统仍呈阳性   >-009fcc?logoWidth=1" title="“受不了”隔离再筛检 巴西总统仍呈阳性  " alt="“受不了”隔离再筛检 巴西总统仍呈阳性  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tbrben3505/djy/blob/master/gb/20/7/15/n12258785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁留一绝招 北京急买美产品       >-009fcc?logoWidth=1" title="美制裁留一绝招 北京急买美产品  " alt="美制裁留一绝招 北京急买美产品  "></a></p>
 <p><a href="https://github.com/tbrben3505/djy/blob/master/gb/20/7/15/n12257412.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国将结束香港哪些优惠待遇 一文看懂    >-009fcc?logoWidth=1" title="美国将结束香港哪些优惠待遇 一文看懂  " alt="美国将结束香港哪些优惠待遇 一文看懂  "></a></p>
@@ -40,14 +40,14 @@
 <p><a href="https://github.com/tbrben3505/djy/blob/master/gb/20/7/16/n12259236.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美将具体制裁哪些中共官员 白宫声明详解   >-009fcc?logoWidth=1" title="美将具体制裁哪些中共官员 白宫声明详解  " alt="美将具体制裁哪些中共官员 白宫声明详解  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/16/a102894825.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/入魔了？党媒:洪水大是网络错觉 不救灾因水利>-009fcc?logoWidth=1" title="入魔了？党媒:洪水大是网络错觉 不救灾因水利工程好  " alt="入魔了？党媒:洪水大是网络错觉 不救灾因水利工程好  "></a></p>
-<p><a href="https://github.com/tbrben3505/djy/blob/master/gb/20/7/15/n12258437.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎后遗症：隐秘之痛          >-009fcc?logoWidth=1" title="中共肺炎后遗症：隐秘之痛  " alt="中共肺炎后遗症：隐秘之痛  "></a></p>
 <p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/16/a102894857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普不与习对话！美国尚未放大招，等北京改邪归>-009fcc?logoWidth=1" title="川普不与习对话！美国尚未放大招，等北京改邪归正？  " alt="川普不与习对话！美国尚未放大招，等北京改邪归正？  "></a></p>
-<p><a href="https://github.com/tbrben3505/djy/blob/master/gb/20/7/15/n12258738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：香港成两种制度殊死搏斗的最前线    >-009fcc?logoWidth=1" title="专家：香港成两种制度殊死搏斗的最前线  " alt="专家：香港成两种制度殊死搏斗的最前线  "></a></p>
-<p><a href="https://github.com/tbrben3505/djy/blob/master/gb/20/7/15/n12258095.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/廖远：上马三峡工程 6亿人生命被刻意忽略  >-009fcc?logoWidth=1" title="廖远：上马三峡工程 6亿人生命被刻意忽略  " alt="廖远：上马三峡工程 6亿人生命被刻意忽略  "></a></p>
+<p><a href="https://github.com/tbrben3505/djy/blob/master/gb/20/7/16/n12259421.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：两个奇女子—阎丽梦与安妮       >-009fcc?logoWidth=1" title="王赫：两个奇女子—阎丽梦与安妮  " alt="王赫：两个奇女子—阎丽梦与安妮  "></a></p>
+<p><a href="https://github.com/tbrben3505/djy/blob/master/gb/20/7/15/n12258437.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎后遗症：隐秘之痛          >-009fcc?logoWidth=1" title="中共肺炎后遗症：隐秘之痛  " alt="中共肺炎后遗症：隐秘之痛  "></a></p>
 <p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/15/a102894821.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/预言家刘伯温 料事如神 他的师父是谁？   >-009fcc?logoWidth=1" title="预言家刘伯温 料事如神 他的师父是谁？  " alt="预言家刘伯温 料事如神 他的师父是谁？  "></a></p>
 <p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/15/a102894198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平接班人后院起火 400亿烂尾楼曝光(视>-009fcc?logoWidth=1" title="习近平接班人后院起火 400亿烂尾楼曝光(视频)  " alt="习近平接班人后院起火 400亿烂尾楼曝光(视频)  "></a></p>
+<p><a href="https://github.com/tbrben3505/djy/blob/master/gb/20/7/15/n12258738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：香港成两种制度殊死搏斗的最前线    >-009fcc?logoWidth=1" title="专家：香港成两种制度殊死搏斗的最前线  " alt="专家：香港成两种制度殊死搏斗的最前线  "></a></p>
 <p><a href="https://github.com/tbrben3505/djy/blob/master/gb/20/7/16/n12259250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥谈制裁中共：北京行为令我们别无选择  >-009fcc?logoWidth=1" title="蓬佩奥谈制裁中共：北京行为令我们别无选择  " alt="蓬佩奥谈制裁中共：北京行为令我们别无选择  "></a></p>
-<p><a href="https://github.com/tbrben3505/djy/blob/master/gb/20/7/15/n12258872.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫辟谣：川普未排除对中共高官额外制裁   >-009fcc?logoWidth=1" title="白宫辟谣：川普未排除对中共高官额外制裁  " alt="白宫辟谣：川普未排除对中共高官额外制裁  "></a></p>
+<p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/15/a102894541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登演讲引用毛泽东语录 被批“中国乔 ”  >-009fcc?logoWidth=1" title="拜登演讲引用毛泽东语录 被批“中国乔 ”  " alt="拜登演讲引用毛泽东语录 被批“中国乔 ”  "></a></p>
 <p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/15/a102894601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普签《香港自治法》废除香港特殊待遇7要点 >-009fcc?logoWidth=1" title="川普签《香港自治法》废除香港特殊待遇7要点  " alt="川普签《香港自治法》废除香港特殊待遇7要点  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tbrben3505/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/tbrben3505/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tbrben3505/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tbrben3505/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tbrben3505/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/tbrben3505/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tbrben3505/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tbrben3505/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/iyyyy">git.io/iyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/bjjjj">git.io/bjjjj</a></div>
 

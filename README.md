@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fckaxq3048/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fckaxq3048/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qffff">git.io/qffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aad">x.co/aad</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kmmmm">git.io/kmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aae">x.co/aae</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,7 +39,6 @@
 <p><a href="https://github.com/fckaxq3048/djy/blob/master/gb/20/7/16/n12259772.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆一水文站水位涨逾5米 万州街面水深2米 >-009fcc?logoWidth=1" title="重庆一水文站水位涨逾5米 万州街面水深2米  " alt="重庆一水文站水位涨逾5米 万州街面水深2米  "></a></p>
 <p><a href="https://github.com/fckaxq3048/djy/blob/master/gb/20/7/14/n12254987.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“党领导经济”陷泥潭 中共内部也起争议   >-009fcc?logoWidth=1" title="“党领导经济”陷泥潭 中共内部也起争议  " alt="“党领导经济”陷泥潭 中共内部也起争议  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/fckaxq3048/djy/blob/master/gb/20/7/16/n12260453.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传美拟禁中共党员入境 微博欢腾：全票通过  >-009fcc?logoWidth=1" title="传美拟禁中共党员入境 微博欢腾：全票通过  " alt="传美拟禁中共党员入境 微博欢腾：全票通过  "></a></p>
 <p><a href="https://github.com/fckaxq3048/ntdtv/blob/master/gb/2020/07/16/a102895253.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普签香港自治法，颁布行政令，一石二鸟打到了>-009fcc?logoWidth=1" title="川普签香港自治法，颁布行政令，一石二鸟打到了谁？  " alt="川普签香港自治法，颁布行政令，一石二鸟打到了谁？  "></a></p>
 <p><a href="https://github.com/fckaxq3048/ntdtv/blob/master/gb/2020/07/16/a102895080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“洪水逼的鸡上树”窜热搜 网友笑了又哭了  >-009fcc?logoWidth=1" title="“洪水逼的鸡上树”窜热搜 网友笑了又哭了  " alt="“洪水逼的鸡上树”窜热搜 网友笑了又哭了  "></a></p>
 <p><a href="https://github.com/fckaxq3048/djy/blob/master/gb/20/7/15/n12258859.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：7.20前夕中共诬蔑法轮功的新证据  >-009fcc?logoWidth=1" title="沈舟：7.20前夕中共诬蔑法轮功的新证据  " alt="沈舟：7.20前夕中共诬蔑法轮功的新证据  "></a></p>
@@ -485,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fckaxq3048/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fckaxq3048/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/fckaxq3048/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fckaxq3048/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fckaxq3048/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fckaxq3048/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fckaxq3048/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/fckaxq3048/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fckaxq3048/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fckaxq3048/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qffff">git.io/qffff</a></div>
+<div align="center">短网址: <a href="https://git.io/kmmmm">git.io/kmmmm</a></div>
 

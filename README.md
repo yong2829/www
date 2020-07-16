@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aopcrh390/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aopcrh390/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bpppp">git.io/bpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2999">x.co/2999</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/p7777">git.io/p7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp5">x.co/pp5</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894108.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国洪水滔天 高层内斗凶险 习近平行踪诡异 >-009fcc?logoWidth=1" title="中国洪水滔天 高层内斗凶险 习近平行踪诡异  " alt="中国洪水滔天 高层内斗凶险 习近平行踪诡异  "></a></p>
 <p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894079.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普强力回击港版国安法：没打算和习近平对话 >-009fcc?logoWidth=1" title="川普强力回击港版国安法：没打算和习近平对话  " alt="川普强力回击港版国安法：没打算和习近平对话  "></a></p>
 <p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894035.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普签行政令：全面终止香港特殊待遇     >-009fcc?logoWidth=1" title="川普签行政令：全面终止香港特殊待遇  " alt="川普签行政令：全面终止香港特殊待遇  "></a></p>
+<p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/12/a102892257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港府人员染疫增加 林郑欲将40万港人DNA送>-009fcc?logoWidth=1" title="港府人员染疫增加 林郑欲将40万港人DNA送中  " alt="港府人员染疫增加 林郑欲将40万港人DNA送中  "></a></p>
 <p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894259.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美新冷战 川普全面出击:中共对美国的利用该>-009fcc?logoWidth=1" title="中美新冷战 川普全面出击:中共对美国的利用该停止了  " alt="中美新冷战 川普全面出击:中共对美国的利用该停止了  "></a></p>
 <p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894802.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共颁十禁令强化党员思想控制 参观古迹也违规>-009fcc?logoWidth=1" title="中共颁十禁令强化党员思想控制 参观古迹也违规  " alt="中共颁十禁令强化党员思想控制 参观古迹也违规  "></a></p>
 <p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普严厉打击黑帮MS13  头目将面临死刑 >-009fcc?logoWidth=1" title="川普严厉打击黑帮MS13  头目将面临死刑  " alt="川普严厉打击黑帮MS13  头目将面临死刑  "></a></p>
 <p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894747.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普签署法案 要中共对压迫港人负责     >-009fcc?logoWidth=1" title="川普签署法案 要中共对压迫港人负责  " alt="川普签署法案 要中共对压迫港人负责  "></a></p>
-<p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共当局警告:淮河水系也将出现洪水     >-009fcc?logoWidth=1" title="中共当局警告:淮河水系也将出现洪水  " alt="中共当局警告:淮河水系也将出现洪水  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aopcrh390/djy/blob/master/gb/20/7/2/n12228522.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代：别觉得可栽赃在川普身上 你栽不了  >-009fcc?logoWidth=1" title="红二代：别觉得可栽赃在川普身上 你栽不了  " alt="红二代：别觉得可栽赃在川普身上 你栽不了  "></a></p>
 <p><a href="https://github.com/aopcrh390/djy/blob/master/gb/20/7/15/n12258352.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：限制华为等中企部分员工签证     >-009fcc?logoWidth=1" title="蓬佩奥：限制华为等中企部分员工签证  " alt="蓬佩奥：限制华为等中企部分员工签证  "></a></p>
@@ -42,13 +42,13 @@
 <p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传TikTok拟分拆为美国公司 纳瓦罗:拆了>-009fcc?logoWidth=1" title="传TikTok拟分拆为美国公司 纳瓦罗:拆了也制裁  " alt="传TikTok拟分拆为美国公司 纳瓦罗:拆了也制裁  "></a></p>
 <p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本发表国防白皮书 首度谴责中共利用疫情扩张>-009fcc?logoWidth=1" title="日本发表国防白皮书 首度谴责中共利用疫情扩张  " alt="日本发表国防白皮书 首度谴责中共利用疫情扩张  "></a></p>
 <p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894169.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘：武汉病毒所真的有人逃出来！是谁？闫丽梦>-009fcc?logoWidth=1" title="揭秘：武汉病毒所真的有人逃出来！是谁？闫丽梦露面的真正意义！  " alt="揭秘：武汉病毒所真的有人逃出来！是谁？闫丽梦露面的真正意义！  "></a></p>
+<p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/16/a102894829.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：川普签法案下战书，华春莹喊“让暴风雨来>-009fcc?logoWidth=1" title="文昭：川普签法案下战书，华春莹喊“让暴风雨来得更猛烈”！  " alt="文昭：川普签法案下战书，华春莹喊“让暴风雨来得更猛烈”！  "></a></p>
 <p><a href="https://github.com/aopcrh390/djy/blob/master/gb/20/7/15/n12256544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：美英祭出反制大动作 中共心惊     >-009fcc?logoWidth=1" title="田云：美英祭出反制大动作 中共心惊  " alt="田云：美英祭出反制大动作 中共心惊  "></a></p>
 <p><a href="https://github.com/aopcrh390/djy/blob/master/gb/20/7/15/n12258150.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新书《隐藏的手：中共重塑世界手段揭秘》   >-009fcc?logoWidth=1" title="新书《隐藏的手：中共重塑世界手段揭秘》  " alt="新书《隐藏的手：中共重塑世界手段揭秘》  "></a></p>
-<p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹说错了什么？反引来“领袖”的恐惧   >-009fcc?logoWidth=1" title="华春莹说错了什么？反引来“领袖”的恐惧  " alt="华春莹说错了什么？反引来“领袖”的恐惧  "></a></p>
 <p><a href="https://github.com/aopcrh390/djy/blob/master/gb/20/7/15/n12258284.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共向海外公民征税45 员工考虑离开香港  >-009fcc?logoWidth=1" title="中共向海外公民征税45 员工考虑离开香港  " alt="中共向海外公民征税45 员工考虑离开香港  "></a></p>
 <p><a href="https://github.com/aopcrh390/djy/blob/master/gb/20/7/15/n12258416.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美总统候选人拜登公然引用《毛语录》 被美国网>-009fcc?logoWidth=1" title="美总统候选人拜登公然引用《毛语录》 被美国网友骂翻  " alt="美总统候选人拜登公然引用《毛语录》 被美国网友骂翻  "></a></p>
+<p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹说错了什么？反引来“领袖”的恐惧   >-009fcc?logoWidth=1" title="华春莹说错了什么？反引来“领袖”的恐惧  " alt="华春莹说错了什么？反引来“领袖”的恐惧  "></a></p>
 <p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共触目惊心的经济掠夺（7）        >-009fcc?logoWidth=1" title="中共触目惊心的经济掠夺（7）  " alt="中共触目惊心的经济掠夺（7）  "></a></p>
-<p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102893992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦再度受访：我们的时间不多了！(视频) >-009fcc?logoWidth=1" title="闫丽梦再度受访：我们的时间不多了！(视频)  " alt="闫丽梦再度受访：我们的时间不多了！(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aopcrh390/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/aopcrh390/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aopcrh390/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aopcrh390/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aopcrh390/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/aopcrh390/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aopcrh390/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aopcrh390/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bpppp">git.io/bpppp</a></div>
+<div align="center">短网址: <a href="https://git.io/p7777">git.io/p7777</a></div>
 

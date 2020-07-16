@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fckaxq3048/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fckaxq3048/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bbbbbbbb">git.io/bbbbbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaj">x.co/aaj</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qffff">git.io/qffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aad">x.co/aad</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/fckaxq3048/ntdtv/blob/master/gb/2020/07/16/a102894992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“红朝发言人脸谱”火了 三大战狼引热议(视频>-009fcc?logoWidth=1" title="“红朝发言人脸谱”火了 三大战狼引热议(视频)  " alt="“红朝发言人脸谱”火了 三大战狼引热议(视频)  "></a></p>
 <p><a href="https://github.com/fckaxq3048/ntdtv/blob/master/gb/2020/07/16/a102894945.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：美中对话性质已变 中共领导人明白这一>-009fcc?logoWidth=1" title="蓬佩奥：美中对话性质已变 中共领导人明白这一点  " alt="蓬佩奥：美中对话性质已变 中共领导人明白这一点  "></a></p>
 <p><a href="https://github.com/fckaxq3048/ntdtv/blob/master/gb/2020/07/16/a102894906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卫星抓到三峡大坝“超级泄洪” 王维洛：洪水是>-009fcc?logoWidth=1" title="卫星抓到三峡大坝“超级泄洪” 王维洛：洪水是人为的  " alt="卫星抓到三峡大坝“超级泄洪” 王维洛：洪水是人为的  "></a></p>
-<p><a href="https://github.com/fckaxq3048/ntdtv/blob/master/gb/2020/07/16/a102895292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国司法部长巴尔发表关于中国政策的讲话（同声>-009fcc?logoWidth=1" title="美国司法部长巴尔发表关于中国政策的讲话（同声翻译）  " alt="美国司法部长巴尔发表关于中国政策的讲话（同声翻译）  "></a></p>
 <p><a href="https://github.com/fckaxq3048/ntdtv/blob/master/gb/2020/07/16/a102895286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美密州26议员染疫 引人深思        >-009fcc?logoWidth=1" title="美密州26议员染疫 引人深思  " alt="美密州26议员染疫 引人深思  "></a></p>
 <p><a href="https://github.com/fckaxq3048/ntdtv/blob/master/gb/2020/07/16/a102895050.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普选战换帅 副经理晋升原经理转顾问    >-009fcc?logoWidth=1" title="川普选战换帅 副经理晋升原经理转顾问  " alt="川普选战换帅 副经理晋升原经理转顾问  "></a></p>
 <p><a href="https://github.com/fckaxq3048/ntdtv/blob/master/gb/2020/07/12/a102892257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥誓言疫情追责 中共会付出代价     >-009fcc?logoWidth=1" title="蓬佩奥誓言疫情追责 中共会付出代价  " alt="蓬佩奥誓言疫情追责 中共会付出代价  "></a></p>
 <p><a href="https://github.com/fckaxq3048/ntdtv/blob/master/gb/2020/07/16/a102895197.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共征编织袋遭痛斥：有钱撒币没钱赈灾    >-009fcc?logoWidth=1" title="中共征编织袋遭痛斥：有钱撒币没钱赈灾  " alt="中共征编织袋遭痛斥：有钱撒币没钱赈灾  "></a></p>
+<p><a href="https://github.com/fckaxq3048/ntdtv/blob/master/gb/2020/07/16/a102895137.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国或禁公务员用抖音 业内人士披露风险   >-009fcc?logoWidth=1" title="美国或禁公务员用抖音 业内人士披露风险  " alt="美国或禁公务员用抖音 业内人士披露风险  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fckaxq3048/djy/blob/master/gb/20/7/16/n12260330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共党员将被禁止入美国？网络欢腾     >-009fcc?logoWidth=1" title="传中共党员将被禁止入美国？网络欢腾  " alt="传中共党员将被禁止入美国？网络欢腾  "></a></p>
 <p><a href="https://github.com/fckaxq3048/djy/blob/master/gb/20/7/16/n12260176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国考虑全面禁中共党员及家属入境      >-009fcc?logoWidth=1" title="美国考虑全面禁中共党员及家属入境  " alt="美国考虑全面禁中共党员及家属入境  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fckaxq3048/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fckaxq3048/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/fckaxq3048/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fckaxq3048/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fckaxq3048/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fckaxq3048/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fckaxq3048/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/fckaxq3048/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fckaxq3048/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fckaxq3048/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bbbbbbbb">git.io/bbbbbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/qffff">git.io/qffff</a></div>
 

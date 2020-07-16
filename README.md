@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tbrben3505/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tbrben3505/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/baaaa">git.io/baaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a9a">x.co/a9a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jiiii">git.io/jiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/gaa">x.co/gaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/16/a102895124.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一文看懂 川普对港行政命令7大要点     >-009fcc?logoWidth=1" title="一文看懂 川普对港行政命令7大要点  " alt="一文看懂 川普对港行政命令7大要点  "></a></p>
 <p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/16/a102894992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“红朝发言人脸谱”火了 三大战狼引热议(视频>-009fcc?logoWidth=1" title="“红朝发言人脸谱”火了 三大战狼引热议(视频)  " alt="“红朝发言人脸谱”火了 三大战狼引热议(视频)  "></a></p>
+<p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/16/a102894945.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：美中对话性质已变 中共领导人明白这一>-009fcc?logoWidth=1" title="蓬佩奥：美中对话性质已变 中共领导人明白这一点  " alt="蓬佩奥：美中对话性质已变 中共领导人明白这一点  "></a></p>
 <p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/16/a102894906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卫星抓到三峡大坝“超级泄洪” 王维洛：洪水是>-009fcc?logoWidth=1" title="卫星抓到三峡大坝“超级泄洪” 王维洛：洪水是人为的  " alt="卫星抓到三峡大坝“超级泄洪” 王维洛：洪水是人为的  "></a></p>
 <p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/16/a102894915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大凶之兆！习近平保党抛新定位        >-009fcc?logoWidth=1" title="大凶之兆！习近平保党抛新定位  " alt="大凶之兆！习近平保党抛新定位  "></a></p>
 <p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/16/a102894891.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京卫戍区司令换人 北戴河会前高层内斗升级 >-009fcc?logoWidth=1" title="北京卫戍区司令换人 北戴河会前高层内斗升级  " alt="北京卫戍区司令换人 北戴河会前高层内斗升级  "></a></p>
-<p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/15/a102894797.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共购美玉米创单日新高 美智库:北京力避关系>-009fcc?logoWidth=1" title="中共购美玉米创单日新高 美智库:北京力避关系崩盘  " alt="中共购美玉米创单日新高 美智库:北京力避关系崩盘  "></a></p>
 <p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/16/a102895080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“洪水逼的鸡上树”窜热搜 网友笑了又哭了  >-009fcc?logoWidth=1" title="“洪水逼的鸡上树”窜热搜 网友笑了又哭了  " alt="“洪水逼的鸡上树”窜热搜 网友笑了又哭了  "></a></p>
 <p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/16/a102895060.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/15名党员救灾造假 网友怒批无耻      >-009fcc?logoWidth=1" title="15名党员救灾造假 网友怒批无耻  " alt="15名党员救灾造假 网友怒批无耻  "></a></p>
 <p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/16/a102895006.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/泡沫巨浪席卷南非开普敦 围观民众成“泡沫人”>-009fcc?logoWidth=1" title="泡沫巨浪席卷南非开普敦 围观民众成“泡沫人”  " alt="泡沫巨浪席卷南非开普敦 围观民众成“泡沫人”  "></a></p>
@@ -40,14 +40,15 @@
 <p><a href="https://github.com/tbrben3505/djy/blob/master/gb/20/7/16/n12259976.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：美制裁击中痛处 中共惊慌连发反美文章 >-009fcc?logoWidth=1" title="田云：美制裁击中痛处 中共惊慌连发反美文章  " alt="田云：美制裁击中痛处 中共惊慌连发反美文章  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/16/a102894955.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共解体在即，呼吁全面收集其罪证      >-009fcc?logoWidth=1" title="中共解体在即，呼吁全面收集其罪证  " alt="中共解体在即，呼吁全面收集其罪证  "></a></p>
+<p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/16/a102894967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政敌投毒反扑习？卫星揭三峡实情       >-009fcc?logoWidth=1" title="政敌投毒反扑习？卫星揭三峡实情  " alt="政敌投毒反扑习？卫星揭三峡实情  "></a></p>
 <p><a href="https://github.com/tbrben3505/djy/blob/master/gb/20/7/16/n12259749.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国际科学期刊撤大陆学者十几篇可疑论文    >-009fcc?logoWidth=1" title="国际科学期刊撤大陆学者十几篇可疑论文  " alt="国际科学期刊撤大陆学者十几篇可疑论文  "></a></p>
 <p><a href="https://github.com/tbrben3505/djy/blob/master/gb/20/7/16/n12259785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江西九江溃堤淹村 村民：人祸大于天灾    >-009fcc?logoWidth=1" title="江西九江溃堤淹村 村民：人祸大于天灾  " alt="江西九江溃堤淹村 村民：人祸大于天灾  "></a></p>
-<p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/16/a102894945.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：美中对话性质已变 中共领导人明白这一>-009fcc?logoWidth=1" title="蓬佩奥：美中对话性质已变 中共领导人明白这一点  " alt="蓬佩奥：美中对话性质已变 中共领导人明白这一点  "></a></p>
-<p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/16/a102894829.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：川普签法案下战书，华春莹喊“让暴风雨来>-009fcc?logoWidth=1" title="文昭：川普签法案下战书，华春莹喊“让暴风雨来得更猛烈”！  " alt="文昭：川普签法案下战书，华春莹喊“让暴风雨来得更猛烈”！  "></a></p>
+<p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/15/a102894635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/称武统是唯一选项 中共国安委专家促启动8大准>-009fcc?logoWidth=1" title="称武统是唯一选项 中共国安委专家促启动8大准备  " alt="称武统是唯一选项 中共国安委专家促启动8大准备  "></a></p>
+<p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/15/a102894705.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/牺牲农村保城市 鄱阳湖“主动决堤”视频曝光 >-009fcc?logoWidth=1" title="牺牲农村保城市 鄱阳湖“主动决堤”视频曝光  " alt="牺牲农村保城市 鄱阳湖“主动决堤”视频曝光  "></a></p>
 <p><a href="https://github.com/tbrben3505/djy/blob/master/gb/20/7/16/n12259250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥谈制裁中共：北京行为令我们别无选择  >-009fcc?logoWidth=1" title="蓬佩奥谈制裁中共：北京行为令我们别无选择  " alt="蓬佩奥谈制裁中共：北京行为令我们别无选择  "></a></p>
 <p><a href="https://github.com/tbrben3505/djy/blob/master/gb/20/7/15/n12258284.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共向海外公民征税45 员工考虑离开香港  >-009fcc?logoWidth=1" title="中共向海外公民征税45 员工考虑离开香港  " alt="中共向海外公民征税45 员工考虑离开香港  "></a></p>
-<p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/15/a102894705.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/牺牲农村保城市 鄱阳湖“主动决堤”视频曝光 >-009fcc?logoWidth=1" title="牺牲农村保城市 鄱阳湖“主动决堤”视频曝光  " alt="牺牲农村保城市 鄱阳湖“主动决堤”视频曝光  "></a></p>
 <p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/15/a102894821.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/预言家刘伯温 料事如神 他的师父是谁？   >-009fcc?logoWidth=1" title="预言家刘伯温 料事如神 他的师父是谁？  " alt="预言家刘伯温 料事如神 他的师父是谁？  "></a></p>
+<p><a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/2020/07/16/a102894829.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：川普签法案下战书，华春莹喊“让暴风雨来>-009fcc?logoWidth=1" title="文昭：川普签法案下战书，华春莹喊“让暴风雨来得更猛烈”！  " alt="文昭：川普签法案下战书，华春莹喊“让暴风雨来得更猛烈”！  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -485,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tbrben3505/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/tbrben3505/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tbrben3505/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tbrben3505/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tbrben3505/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tbrben3505/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/tbrben3505/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tbrben3505/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tbrben3505/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/baaaa">git.io/baaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/jiiii">git.io/jiiii</a></div>
 

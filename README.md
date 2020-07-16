@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aopcrh390/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aopcrh390/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/acccc">git.io/acccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/epp">x.co/epp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fssss">git.io/fssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/mdd">x.co/mdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登演讲引用毛泽东语录 被批“中国乔 ”  >-009fcc?logoWidth=1" title="拜登演讲引用毛泽东语录 被批“中国乔 ”  " alt="拜登演讲引用毛泽东语录 被批“中国乔 ”  "></a></p>
 <p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平行踪诡异 /闫丽梦再度受访      >-009fcc?logoWidth=1" title="习近平行踪诡异 /闫丽梦再度受访  " alt="习近平行踪诡异 /闫丽梦再度受访  "></a></p>
 <p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/小粉红回国救父再爆黑幕 检察官索贿30万  >-009fcc?logoWidth=1" title="小粉红回国救父再爆黑幕 检察官索贿30万  " alt="小粉红回国救父再爆黑幕 检察官索贿30万  "></a></p>
+<p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/16/a102894899.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“受不了”隔离再筛检 巴西总统仍呈阳性   >-009fcc?logoWidth=1" title="“受不了”隔离再筛检 巴西总统仍呈阳性  " alt="“受不了”隔离再筛检 巴西总统仍呈阳性  "></a></p>
 <p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/12/a102892257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港府人员染疫增加 林郑欲将40万港人DNA送>-009fcc?logoWidth=1" title="港府人员染疫增加 林郑欲将40万港人DNA送中  " alt="港府人员染疫增加 林郑欲将40万港人DNA送中  "></a></p>
 <p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894259.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美新冷战 川普全面出击:中共对美国的利用该>-009fcc?logoWidth=1" title="中美新冷战 川普全面出击:中共对美国的利用该停止了  " alt="中美新冷战 川普全面出击:中共对美国的利用该停止了  "></a></p>
 <p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894802.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共颁十禁令强化党员思想控制 参观古迹也违规>-009fcc?logoWidth=1" title="中共颁十禁令强化党员思想控制 参观古迹也违规  " alt="中共颁十禁令强化党员思想控制 参观古迹也违规  "></a></p>
 <p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普严厉打击黑帮MS13  头目将面临死刑 >-009fcc?logoWidth=1" title="川普严厉打击黑帮MS13  头目将面临死刑  " alt="川普严厉打击黑帮MS13  头目将面临死刑  "></a></p>
-<p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894747.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普签署法案 要中共对压迫港人负责     >-009fcc?logoWidth=1" title="川普签署法案 要中共对压迫港人负责  " alt="川普签署法案 要中共对压迫港人负责  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aopcrh390/djy/blob/master/gb/20/7/2/n12228522.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代：别觉得可栽赃在川普身上 你栽不了  >-009fcc?logoWidth=1" title="红二代：别觉得可栽赃在川普身上 你栽不了  " alt="红二代：别觉得可栽赃在川普身上 你栽不了  "></a></p>
 <p><a href="https://github.com/aopcrh390/djy/blob/master/gb/20/7/15/n12258785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁留一绝招 北京急买美产品       >-009fcc?logoWidth=1" title="美制裁留一绝招 北京急买美产品  " alt="美制裁留一绝招 北京急买美产品  "></a></p>
@@ -39,19 +39,17 @@
 <p><a href="https://github.com/aopcrh390/djy/blob/master/gb/20/7/15/n12258416.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登引用《毛语录》 遭美国网友嘲讽     >-009fcc?logoWidth=1" title="拜登引用《毛语录》 遭美国网友嘲讽  " alt="拜登引用《毛语录》 遭美国网友嘲讽  "></a></p>
 <p><a href="https://github.com/aopcrh390/djy/blob/master/gb/20/7/15/n12258284.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共向海外公民征税45 员工考虑离开香港  >-009fcc?logoWidth=1" title="中共向海外公民征税45 员工考虑离开香港  " alt="中共向海外公民征税45 员工考虑离开香港  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894169.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘：武汉病毒所真的有人逃出来！是谁？闫丽梦>-009fcc?logoWidth=1" title="揭秘：武汉病毒所真的有人逃出来！是谁？闫丽梦露面的真正意义！  " alt="揭秘：武汉病毒所真的有人逃出来！是谁？闫丽梦露面的真正意义！  "></a></p>
-<p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894685.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/就川普行政令 香港局势 南海台海局势采访袁弓>-009fcc?logoWidth=1" title="就川普行政令 香港局势 南海台海局势采访袁弓夷  " alt="就川普行政令 香港局势 南海台海局势采访袁弓夷  "></a></p>
+<p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/16/a102894857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普不与习对话！美国尚未放大招，等北京改邪归>-009fcc?logoWidth=1" title="川普不与习对话！美国尚未放大招，等北京改邪归正？  " alt="川普不与习对话！美国尚未放大招，等北京改邪归正？  "></a></p>
 <p><a href="https://github.com/aopcrh390/djy/blob/master/gb/20/7/15/n12258416.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美总统候选人拜登公然引用《毛语录》 被美国网>-009fcc?logoWidth=1" title="美总统候选人拜登公然引用《毛语录》 被美国网友骂翻  " alt="美总统候选人拜登公然引用《毛语录》 被美国网友骂翻  "></a></p>
-<p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平接班人后院起火 400亿烂尾楼曝光(视>-009fcc?logoWidth=1" title="习近平接班人后院起火 400亿烂尾楼曝光(视频)  " alt="习近平接班人后院起火 400亿烂尾楼曝光(视频)  "></a></p>
-<p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894108.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国洪水滔天 高层内斗凶险 习近平行踪诡异 >-009fcc?logoWidth=1" title="中国洪水滔天 高层内斗凶险 习近平行踪诡异  " alt="中国洪水滔天 高层内斗凶险 习近平行踪诡异  "></a></p>
+<p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/16/a102894883.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒改变世界 香港的三种未来        >-009fcc?logoWidth=1" title="病毒改变世界 香港的三种未来  " alt="病毒改变世界 香港的三种未来  "></a></p>
 <p><a href="https://github.com/aopcrh390/djy/blob/master/gb/20/7/15/n12258437.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎后遗症：隐秘之痛          >-009fcc?logoWidth=1" title="中共肺炎后遗症：隐秘之痛  " alt="中共肺炎后遗症：隐秘之痛  "></a></p>
 <p><a href="https://github.com/aopcrh390/djy/blob/master/gb/20/7/15/n12258961.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下 美中关系加速恶化一览表       >-009fcc?logoWidth=1" title="疫情下 美中关系加速恶化一览表  " alt="疫情下 美中关系加速恶化一览表  "></a></p>
-<p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传TikTok拟分拆为美国公司 纳瓦罗:拆了>-009fcc?logoWidth=1" title="传TikTok拟分拆为美国公司 纳瓦罗:拆了也制裁  " alt="传TikTok拟分拆为美国公司 纳瓦罗:拆了也制裁  "></a></p>
-<p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹说错了什么？反引来“领袖”的恐惧   >-009fcc?logoWidth=1" title="华春莹说错了什么？反引来“领袖”的恐惧  " alt="华春莹说错了什么？反引来“领袖”的恐惧  "></a></p>
+<p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894637.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江洪峰“复式推进”还是回落？中新网自打脸 >-009fcc?logoWidth=1" title="长江洪峰“复式推进”还是回落？中新网自打脸  " alt="长江洪峰“复式推进”还是回落？中新网自打脸  "></a></p>
+<p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894821.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/预言家刘伯温 料事如神 他的师父是谁？   >-009fcc?logoWidth=1" title="预言家刘伯温 料事如神 他的师父是谁？  " alt="预言家刘伯温 料事如神 他的师父是谁？  "></a></p>
 <p><a href="https://github.com/aopcrh390/djy/blob/master/gb/20/7/14/n12256086.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普签署香港自治法 中共将面临何种制裁   >-009fcc?logoWidth=1" title="川普签署香港自治法 中共将面临何种制裁  " alt="川普签署香港自治法 中共将面临何种制裁  "></a></p>
 <p><a href="https://github.com/aopcrh390/djy/blob/master/gb/20/7/15/n12257943.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美近一年曝光的中共科技间谍案        >-009fcc?logoWidth=1" title="美近一年曝光的中共科技间谍案  " alt="美近一年曝光的中共科技间谍案  "></a></p>
-<p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共触目惊心的经济掠夺（7）        >-009fcc?logoWidth=1" title="中共触目惊心的经济掠夺（7）  " alt="中共触目惊心的经济掠夺（7）  "></a></p>
-<p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894686.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外交人员疑涉间谍 澳议员吁驱逐百人   >-009fcc?logoWidth=1" title="中共外交人员疑涉间谍 澳议员吁驱逐百人  " alt="中共外交人员疑涉间谍 澳议员吁驱逐百人  "></a></p>
+<p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894685.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/就川普行政令 香港局势 南海台海局势采访袁弓>-009fcc?logoWidth=1" title="就川普行政令 香港局势 南海台海局势采访袁弓夷  " alt="就川普行政令 香港局势 南海台海局势采访袁弓夷  "></a></p>
+<p><a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/2020/07/15/a102894108.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国洪水滔天 高层内斗凶险 习近平行踪诡异 >-009fcc?logoWidth=1" title="中国洪水滔天 高层内斗凶险 习近平行踪诡异  " alt="中国洪水滔天 高层内斗凶险 习近平行踪诡异  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -489,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aopcrh390/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/aopcrh390/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aopcrh390/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aopcrh390/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aopcrh390/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aopcrh390/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/aopcrh390/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aopcrh390/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aopcrh390/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/acccc">git.io/acccc</a></div>
+<div align="center">短网址: <a href="https://git.io/fssss">git.io/fssss</a></div>
 

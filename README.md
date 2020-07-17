@@ -10,19 +10,19 @@
 <div align="center">
 <a target="_blank" href="https://github.com/vzyswn306/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/vzyswn306/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ebbbb">git.io/ebbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3pp">x.co/3pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dtttt">git.io/dtttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u77">x.co/u77</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/2020/07/17/a102895852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平心里没底了？疑警告党内：要死一起死  >-009fcc?logoWidth=1" title="习近平心里没底了？疑警告党内：要死一起死  " alt="习近平心里没底了？疑警告党内：要死一起死  "></a></p>
 <p><a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/2020/07/17/a102895682.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟禁中共党员入境 党媒直呼“比断交严重” >-009fcc?logoWidth=1" title="美拟禁中共党员入境 党媒直呼“比断交严重”  " alt="美拟禁中共党员入境 党媒直呼“比断交严重”  "></a></p>
 <p><a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/2020/07/17/a102895681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟禁中共党员及家属入境 女袁木回应火了  >-009fcc?logoWidth=1" title="美拟禁中共党员及家属入境 女袁木回应火了  " alt="美拟禁中共党员及家属入境 女袁木回应火了  "></a></p>
 <p><a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/2020/07/17/a102895653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中科院近百科学家集体辞职 传惊动中共高层  >-009fcc?logoWidth=1" title="中科院近百科学家集体辞职 传惊动中共高层  " alt="中科院近百科学家集体辞职 传惊动中共高层  "></a></p>
 <p><a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/2020/07/16/a102895456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟禁中共党员入境 陆网友一片欢呼     >-009fcc?logoWidth=1" title="美拟禁中共党员入境 陆网友一片欢呼  " alt="美拟禁中共党员入境 陆网友一片欢呼  "></a></p>
-<p><a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/2020/07/16/a102895460.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股全线暴跌 超200股跌停 网评:这茬韭菜>-009fcc?logoWidth=1" title="A股全线暴跌 超200股跌停 网评:这茬韭菜割太快  " alt="A股全线暴跌 超200股跌停 网评:这茬韭菜割太快  "></a></p>
-<p><a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/2020/07/17/a102895852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平心里没底了？疑警告党内：要死一起死  >-009fcc?logoWidth=1" title="习近平心里没底了？疑警告党内：要死一起死  " alt="习近平心里没底了？疑警告党内：要死一起死  "></a></p>
 <p><a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/2020/07/17/a102895765.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新书《铁证如山》发表公告          >-009fcc?logoWidth=1" title="新书《铁证如山》发表公告  " alt="新书《铁证如山》发表公告  "></a></p>
 <p><a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/2020/07/17/a102895743.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国太湖达最高防洪水位 当局急发红色预警  >-009fcc?logoWidth=1" title="中国太湖达最高防洪水位 当局急发红色预警  " alt="中国太湖达最高防洪水位 当局急发红色预警  "></a></p>
 <p><a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/2020/07/17/a102895711.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国专家揭三峡大坝缺陷 不是淹重庆就是淹武汉>-009fcc?logoWidth=1" title="中国专家揭三峡大坝缺陷 不是淹重庆就是淹武汉  " alt="中国专家揭三峡大坝缺陷 不是淹重庆就是淹武汉  "></a></p>
+<p><a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/2020/07/17/a102895666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林郑韩正上榜？美拟议制裁黑名单       >-009fcc?logoWidth=1" title="林郑韩正上榜？美拟议制裁黑名单  " alt="林郑韩正上榜？美拟议制裁黑名单  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/vzyswn306/djy/blob/master/gb/20/7/16/n12260330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共党员将被禁止入美国？网络欢腾     >-009fcc?logoWidth=1" title="传中共党员将被禁止入美国？网络欢腾  " alt="传中共党员将被禁止入美国？网络欢腾  "></a></p>
 <p><a href="https://github.com/vzyswn306/djy/blob/master/gb/20/7/16/n12261417.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中科院核安全所90多人集体辞职 网曝内幕  >-009fcc?logoWidth=1" title="中科院核安全所90多人集体辞职 网曝内幕  " alt="中科院核安全所90多人集体辞职 网曝内幕  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/vzyswn306/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/vzyswn306/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vzyswn306/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vzyswn306/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/vzyswn306/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/vzyswn306/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vzyswn306/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vzyswn306/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ebbbb">git.io/ebbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/dtttt">git.io/dtttt</a></div>
 

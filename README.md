@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rchmfw305/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rchmfw305/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e2222">git.io/e2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/cpp">x.co/cpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/piiii">git.io/piiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/vaa">x.co/vaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895682.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟禁中共党员入境 党媒直呼“比断交严重” >-009fcc?logoWidth=1" title="美拟禁中共党员入境 党媒直呼“比断交严重”  " alt="美拟禁中共党员入境 党媒直呼“比断交严重”  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邝士山：疫情持续时间长 港人需防范     >-009fcc?logoWidth=1" title="邝士山：疫情持续时间长 港人需防范  " alt="邝士山：疫情持续时间长 港人需防范  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/12/a102892257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国或禁中共党员和家属入境 “退党”成热搜 >-009fcc?logoWidth=1" title="美国或禁中共党员和家属入境 “退党”成热搜  " alt="美国或禁中共党员和家属入境 “退党”成热搜  "></a></p>
-<p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆乌鲁木齐爆新疫情 地铁公交停运 9成航班>-009fcc?logoWidth=1" title="新疆乌鲁木齐爆新疫情 地铁公交停运 9成航班取消  " alt="新疆乌鲁木齐爆新疫情 地铁公交停运 9成航班取消  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895814.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大政要呼吁：制裁迫害法轮功的中共官员  >-009fcc?logoWidth=1" title="加拿大政要呼吁：制裁迫害法轮功的中共官员  " alt="加拿大政要呼吁：制裁迫害法轮功的中共官员  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895831.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逃离中国 法轮功学员王东曝中共酷刑迫害   >-009fcc?logoWidth=1" title="逃离中国 法轮功学员王东曝中共酷刑迫害  " alt="逃离中国 法轮功学员王东曝中共酷刑迫害  "></a></p>
+<p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895765.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新书《铁证如山》发表公告          >-009fcc?logoWidth=1" title="新书《铁证如山》发表公告  " alt="新书《铁证如山》发表公告  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/16/n12260330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共党员将被禁止入美国？网络欢腾     >-009fcc?logoWidth=1" title="传中共党员将被禁止入美国？网络欢腾  " alt="传中共党员将被禁止入美国？网络欢腾  "></a></p>
 <p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/16/n12261417.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中科院核安全所90多人集体辞职 网曝内幕  >-009fcc?logoWidth=1" title="中科院核安全所90多人集体辞职 网曝内幕  " alt="中科院核安全所90多人集体辞职 网曝内幕  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/17/n12262373.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普频出大招 中共劫数难逃         >-009fcc?logoWidth=1" title="川普频出大招 中共劫数难逃  " alt="川普频出大招 中共劫数难逃  "></a></p>
 <p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/16/n12261937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中关系翻船 林郑韩正下波制裁？      >-009fcc?logoWidth=1" title="美中关系翻船 林郑韩正下波制裁？  " alt="美中关系翻船 林郑韩正下波制裁？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆乌鲁木齐爆新疫情 地铁公交停运 9成航班>-009fcc?logoWidth=1" title="新疆乌鲁木齐爆新疫情 地铁公交停运 9成航班取消  " alt="新疆乌鲁木齐爆新疫情 地铁公交停运 9成航班取消  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：南海硝烟起 美或石油禁运      >-009fcc?logoWidth=1" title="袁弓夷：南海硝烟起 美或石油禁运  " alt="袁弓夷：南海硝烟起 美或石油禁运  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895871.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外星人来访？ 法国突然出现神秘麦田圈（视频）>-009fcc?logoWidth=1" title="外星人来访？ 法国突然出现神秘麦田圈（视频）  " alt="外星人来访？ 法国突然出现神秘麦田圈（视频）  "></a></p>
 <p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/17/n12263101.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌鲁木齐确诊病例急增 封城传闻四起     >-009fcc?logoWidth=1" title="乌鲁木齐确诊病例急增 封城传闻四起  " alt="乌鲁木齐确诊病例急增 封城传闻四起  "></a></p>
@@ -484,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rchmfw305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rchmfw305/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rchmfw305/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rchmfw305/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rchmfw305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rchmfw305/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rchmfw305/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rchmfw305/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/e2222">git.io/e2222</a></div>
+<div align="center">短网址: <a href="https://git.io/piiii">git.io/piiii</a></div>
 

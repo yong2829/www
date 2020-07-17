@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rchmfw305/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rchmfw305/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pbbbb">git.io/pbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2226">x.co/2226</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cjjjj">git.io/cjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/edd">x.co/edd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平心里没底了？疑警告党内：要死一起死  >-009fcc?logoWidth=1" title="习近平心里没底了？疑警告党内：要死一起死  " alt="习近平心里没底了？疑警告党内：要死一起死  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国27省泡水 官称吃有保障 网民大怒：吃蝗>-009fcc?logoWidth=1" title="中国27省泡水 官称吃有保障 网民大怒：吃蝗虫吧  " alt="中国27省泡水 官称吃有保障 网民大怒：吃蝗虫吧  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895682.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟禁中共党员入境 党媒直呼“比断交严重” >-009fcc?logoWidth=1" title="美拟禁中共党员入境 党媒直呼“比断交严重”  " alt="美拟禁中共党员入境 党媒直呼“比断交严重”  "></a></p>
+<p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/15/a102894066.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新唐人专题系列片预告：魔鬼在统治着我们的世界>-009fcc?logoWidth=1" title="新唐人专题系列片预告：魔鬼在统治着我们的世界  " alt="新唐人专题系列片预告：魔鬼在统治着我们的世界  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102896305.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/防政变？北戴河会前北京卫戍区司令员换人   >-009fcc?logoWidth=1" title="防政变？北戴河会前北京卫戍区司令员换人  " alt="防政变？北戴河会前北京卫戍区司令员换人  "></a></p>
+<p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102896322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共防资金外逃 华人纽约豪华公寓首付泡汤  >-009fcc?logoWidth=1" title="中共防资金外逃 华人纽约豪华公寓首付泡汤  " alt="中共防资金外逃 华人纽约豪华公寓首付泡汤  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102896271.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“毅力号”携火星直升机 将尝试火星制氧   >-009fcc?logoWidth=1" title="“毅力号”携火星直升机 将尝试火星制氧  " alt="“毅力号”携火星直升机 将尝试火星制氧  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102896263.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥发表演讲：信念、工作和国家（同声翻译）>-009fcc?logoWidth=1" title="蓬佩奥发表演讲：信念、工作和国家（同声翻译）  " alt="蓬佩奥发表演讲：信念、工作和国家（同声翻译）  "></a></p>
-<p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102896252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/禁中共党员赴美？网民赞川普“反贪局局长”  >-009fcc?logoWidth=1" title="禁中共党员赴美？网民赞川普“反贪局局长”  " alt="禁中共党员赴美？网民赞川普“反贪局局长”  "></a></p>
-<p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102896235.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟驱逐中共党员出境 美国华人急办退党   >-009fcc?logoWidth=1" title="美拟驱逐中共党员出境 美国华人急办退党  " alt="美拟驱逐中共党员出境 美国华人急办退党  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/17/n12263801.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共党员及家属或被美限入境 内部掀恐慌   >-009fcc?logoWidth=1" title="中共党员及家属或被美限入境 内部掀恐慌  " alt="中共党员及家属或被美限入境 内部掀恐慌  "></a></p>
 <p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/17/n12264148.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/保长江与大城市 安徽泄洪淹多村       >-009fcc?logoWidth=1" title="保长江与大城市 安徽泄洪淹多村  " alt="保长江与大城市 安徽泄洪淹多村  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rchmfw305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rchmfw305/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rchmfw305/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rchmfw305/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rchmfw305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rchmfw305/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rchmfw305/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rchmfw305/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/pbbbb">git.io/pbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/cjjjj">git.io/cjjjj</a></div>
 

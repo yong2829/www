@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rchmfw305/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rchmfw305/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/n8888">git.io/n8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aya">x.co/aya</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bkkkk">git.io/bkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppi">x.co/ppi</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平心里没底了？疑警告党内：要死一起死  >-009fcc?logoWidth=1" title="习近平心里没底了？疑警告党内：要死一起死  " alt="习近平心里没底了？疑警告党内：要死一起死  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国27省泡水 官称吃有保障 网民大怒：吃蝗>-009fcc?logoWidth=1" title="中国27省泡水 官称吃有保障 网民大怒：吃蝗虫吧  " alt="中国27省泡水 官称吃有保障 网民大怒：吃蝗虫吧  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895682.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟禁中共党员入境 党媒直呼“比断交严重” >-009fcc?logoWidth=1" title="美拟禁中共党员入境 党媒直呼“比断交严重”  " alt="美拟禁中共党员入境 党媒直呼“比断交严重”  "></a></p>
+<p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102896228.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美司法部长讲话全文：硅谷好莱坞停止向中共叩头>-009fcc?logoWidth=1" title="美司法部长讲话全文：硅谷好莱坞停止向中共叩头  " alt="美司法部长讲话全文：硅谷好莱坞停止向中共叩头  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102896216.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共专家奇论：美禁党员入境是想“颠覆共产党”>-009fcc?logoWidth=1" title="中共专家奇论：美禁党员入境是想“颠覆共产党”  " alt="中共专家奇论：美禁党员入境是想“颠覆共产党”  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102896206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/批黑人之死不公却对港人受害沉默 美大公司被揭>-009fcc?logoWidth=1" title="批黑人之死不公却对港人受害沉默 美大公司被揭利益优先  " alt="批黑人之死不公却对港人受害沉默 美大公司被揭利益优先  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102896150.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传武汉女斧劈市政府门牌 中国网民一片叫好  >-009fcc?logoWidth=1" title="传武汉女斧劈市政府门牌 中国网民一片叫好  " alt="传武汉女斧劈市政府门牌 中国网民一片叫好  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102896131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾立法院立委王定宇： 全球将进入灭共潮  >-009fcc?logoWidth=1" title="台湾立法院立委王定宇： 全球将进入灭共潮  " alt="台湾立法院立委王定宇： 全球将进入灭共潮  "></a></p>
-<p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102896108.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴尔：好莱坞迪斯尼屈服中共 后果严重    >-009fcc?logoWidth=1" title="巴尔：好莱坞迪斯尼屈服中共 后果严重  " alt="巴尔：好莱坞迪斯尼屈服中共 后果严重  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/16/n12260330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共党员将被禁止入美国？网络欢腾     >-009fcc?logoWidth=1" title="传中共党员将被禁止入美国？网络欢腾  " alt="传中共党员将被禁止入美国？网络欢腾  "></a></p>
 <p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/16/n12261417.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中科院核安全所90多人集体辞职 网曝内幕  >-009fcc?logoWidth=1" title="中科院核安全所90多人集体辞职 网曝内幕  " alt="中科院核安全所90多人集体辞职 网曝内幕  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rchmfw305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rchmfw305/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rchmfw305/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rchmfw305/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rchmfw305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rchmfw305/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rchmfw305/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rchmfw305/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/n8888">git.io/n8888</a></div>
+<div align="center">短网址: <a href="https://git.io/bkkkk">git.io/bkkkk</a></div>
 

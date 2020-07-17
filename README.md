@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/vzyswn306/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/vzyswn306/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/9999999">git.io/9999999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppe">x.co/ppe</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/szzzz">git.io/szzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/388">x.co/388</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,28 +27,27 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/vzyswn306/djy/blob/master/gb/20/7/16/n12260330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共党员将被禁止入美国？网络欢腾     >-009fcc?logoWidth=1" title="传中共党员将被禁止入美国？网络欢腾  " alt="传中共党员将被禁止入美国？网络欢腾  "></a></p>
 <p><a href="https://github.com/vzyswn306/djy/blob/master/gb/20/7/16/n12261417.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中科院核安全所90多人集体辞职 网曝内幕  >-009fcc?logoWidth=1" title="中科院核安全所90多人集体辞职 网曝内幕  " alt="中科院核安全所90多人集体辞职 网曝内幕  "></a></p>
-<p><a href="https://github.com/vzyswn306/djy/blob/master/gb/20/7/16/n12261940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：洪水滔天 各级领导上行下效玩失踪？  >-009fcc?logoWidth=1" title="钟原：洪水滔天 各级领导上行下效玩失踪？  " alt="钟原：洪水滔天 各级领导上行下效玩失踪？  "></a></p>
 <p><a href="https://github.com/vzyswn306/djy/blob/master/gb/20/7/17/n12262420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美飞行物纵贯中国？习卫军换帅        >-009fcc?logoWidth=1" title="美飞行物纵贯中国？习卫军换帅  " alt="美飞行物纵贯中国？习卫军换帅  "></a></p>
-<p><a href="https://github.com/vzyswn306/djy/blob/master/gb/20/7/16/n12261835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美司法部长对华演讲：中共本质从未改变    >-009fcc?logoWidth=1" title="美司法部长对华演讲：中共本质从未改变  " alt="美司法部长对华演讲：中共本质从未改变  "></a></p>
 <p><a href="https://github.com/vzyswn306/djy/blob/master/gb/20/7/16/n12261937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中关系翻船 林郑韩正下波制裁？      >-009fcc?logoWidth=1" title="美中关系翻船 林郑韩正下波制裁？  " alt="美中关系翻船 林郑韩正下波制裁？  "></a></p>
+<p><a href="https://github.com/vzyswn306/djy/blob/master/gb/20/7/16/n12261940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：洪水滔天 各级领导上行下效玩失踪？  >-009fcc?logoWidth=1" title="钟原：洪水滔天 各级领导上行下效玩失踪？  " alt="钟原：洪水滔天 各级领导上行下效玩失踪？  "></a></p>
+<p><a href="https://github.com/vzyswn306/djy/blob/master/gb/20/7/16/n12261893.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白邦瑞：旅行禁令将剥夺中共的合法性     >-009fcc?logoWidth=1" title="白邦瑞：旅行禁令将剥夺中共的合法性  " alt="白邦瑞：旅行禁令将剥夺中共的合法性  "></a></p>
 <p><a href="https://github.com/vzyswn306/djy/blob/master/gb/20/7/16/n12262021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情过后洪灾 灾民叹太难了         >-009fcc?logoWidth=1" title="疫情过后洪灾 灾民叹太难了  " alt="疫情过后洪灾 灾民叹太难了  "></a></p>
 <p><a href="https://github.com/vzyswn306/djy/blob/master/gb/20/7/14/n12254429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京女子监狱严防“狱情泄露”     >-009fcc?logoWidth=1" title="组图：北京女子监狱严防“狱情泄露”  " alt="组图：北京女子监狱严防“狱情泄露”  "></a></p>
 <p><a href="https://github.com/vzyswn306/djy/blob/master/gb/20/7/16/n12260453.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟禁中共党员入境 微博欢腾：全票通过   >-009fcc?logoWidth=1" title="美拟禁中共党员入境 微博欢腾：全票通过  " alt="美拟禁中共党员入境 微博欢腾：全票通过  "></a></p>
 <p><a href="https://github.com/vzyswn306/djy/blob/master/gb/20/7/16/n12259953.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抗日名将后代：只有法轮功 才能重塑国人灵魂（>-009fcc?logoWidth=1" title="抗日名将后代：只有法轮功 才能重塑国人灵魂（上）  " alt="抗日名将后代：只有法轮功 才能重塑国人灵魂（上）  "></a></p>
 <p><a href="https://github.com/vzyswn306/djy/blob/master/gb/20/7/17/n12262373.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普频出大招 中共劫数难逃         >-009fcc?logoWidth=1" title="川普频出大招 中共劫数难逃  " alt="川普频出大招 中共劫数难逃  "></a></p>
-<p><a href="https://github.com/vzyswn306/djy/blob/master/gb/20/7/16/n12261893.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白邦瑞：旅行禁令将剥夺中共的合法性     >-009fcc?logoWidth=1" title="白邦瑞：旅行禁令将剥夺中共的合法性  " alt="白邦瑞：旅行禁令将剥夺中共的合法性  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/2020/07/17/a102895673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国人民银行放水 大陆房地产市场异动 谁是最>-009fcc?logoWidth=1" title="中国人民银行放水 大陆房地产市场异动 谁是最大赢家？  " alt="中国人民银行放水 大陆房地产市场异动 谁是最大赢家？  "></a></p>
-<p><a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/2020/07/16/a102895460.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股全线暴跌 超200股跌停 网评:这茬韭菜>-009fcc?logoWidth=1" title="A股全线暴跌 超200股跌停 网评:这茬韭菜割太快  " alt="A股全线暴跌 超200股跌停 网评:这茬韭菜割太快  "></a></p>
-<p><a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/2020/07/17/a102895650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥再放重话，直呼习“总书记”/川普对华政>-009fcc?logoWidth=1" title="蓬佩奥再放重话，直呼习“总书记”/川普对华政策十年前就想好了  " alt="蓬佩奥再放重话，直呼习“总书记”/川普对华政策十年前就想好了  "></a></p>
 <p><a href="https://github.com/vzyswn306/djy/blob/master/gb/20/7/16/n12260021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢田：川普重拳反击 中共内部为何恁多想不到 >-009fcc?logoWidth=1" title="谢田：川普重拳反击 中共内部为何恁多想不到  " alt="谢田：川普重拳反击 中共内部为何恁多想不到  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/2020/07/16/a102895460.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股全线暴跌 超200股跌停 网评:这茬韭菜>-009fcc?logoWidth=1" title="A股全线暴跌 超200股跌停 网评:这茬韭菜割太快  " alt="A股全线暴跌 超200股跌停 网评:这茬韭菜割太快  "></a></p>
+<p><a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/2020/07/17/a102895712.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第一回 纣王女娲宫进香（下）        >-009fcc?logoWidth=1" title="第一回 纣王女娲宫进香（下）  " alt="第一回 纣王女娲宫进香（下）  "></a></p>
+<p><a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/2020/07/17/a102895742.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林郑嘴硬不怕美制裁 网爆其小儿子在哈佛工作 >-009fcc?logoWidth=1" title="林郑嘴硬不怕美制裁 网爆其小儿子在哈佛工作  " alt="林郑嘴硬不怕美制裁 网爆其小儿子在哈佛工作  "></a></p>
+<p><a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/2020/07/17/a102895701.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会或取消 习严防红二代政变      >-009fcc?logoWidth=1" title="北戴河会或取消 习严防红二代政变  " alt="北戴河会或取消 习严防红二代政变  "></a></p>
 <p><a href="https://github.com/vzyswn306/djy/blob/master/gb/20/7/16/n12261378.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共熔断政策 劳工回国难又难        >-009fcc?logoWidth=1" title="中共熔断政策 劳工回国难又难  " alt="中共熔断政策 劳工回国难又难  "></a></p>
-<p><a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/2020/07/17/a102895803.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/禁止中共党员和家属来美 “退党”成热搜 中共>-009fcc?logoWidth=1" title="禁止中共党员和家属来美 “退党”成热搜 中共党员寻出路  " alt="禁止中共党员和家属来美 “退党”成热搜 中共党员寻出路  "></a></p>
-<p><a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/2020/07/16/a102895399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟禁中共党员入境 华人急做一件事     >-009fcc?logoWidth=1" title="美拟禁中共党员入境 华人急做一件事  " alt="美拟禁中共党员入境 华人急做一件事  "></a></p>
+<p><a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/2020/07/17/a102895650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥再放重话，直呼习“总书记”/川普对华政>-009fcc?logoWidth=1" title="蓬佩奥再放重话，直呼习“总书记”/川普对华政策十年前就想好了  " alt="蓬佩奥再放重话，直呼习“总书记”/川普对华政策十年前就想好了  "></a></p>
 <p><a href="https://github.com/vzyswn306/djy/blob/master/gb/20/7/17/n12262248.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦出逃曝中共瞒疫真相 蓬佩奥如何看   >-009fcc?logoWidth=1" title="闫丽梦出逃曝中共瞒疫真相 蓬佩奥如何看  " alt="闫丽梦出逃曝中共瞒疫真相 蓬佩奥如何看  "></a></p>
 <p><a href="https://github.com/vzyswn306/djy/blob/master/gb/20/7/16/n12261903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强制农民种粮 引发粮食危机质疑     >-009fcc?logoWidth=1" title="中共强制农民种粮 引发粮食危机质疑  " alt="中共强制农民种粮 引发粮食危机质疑  "></a></p>
-<p><a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/2020/07/16/a102894915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大凶之兆！习近平保党抛新定位        >-009fcc?logoWidth=1" title="大凶之兆！习近平保党抛新定位  " alt="大凶之兆！习近平保党抛新定位  "></a></p>
-<p><a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/2020/07/17/a102895649.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蛤蟆成精搅风浪，龙脉被截国运衰【三峡大坝 一>-009fcc?logoWidth=1" title="蛤蟆成精搅风浪，龙脉被截国运衰【三峡大坝 一口装满水的大锅 下】  " alt="蛤蟆成精搅风浪，龙脉被截国运衰【三峡大坝 一口装满水的大锅 下】  "></a></p>
+<p><a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/2020/07/17/a102895803.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/禁止中共党员和家属来美 “退党”成热搜 中共>-009fcc?logoWidth=1" title="禁止中共党员和家属来美 “退党”成热搜 中共党员寻出路  " alt="禁止中共党员和家属来美 “退党”成热搜 中共党员寻出路  "></a></p>
+<p><a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/2020/07/17/a102895722.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国“退党”成热搜 一招教你如何领取退党证 >-009fcc?logoWidth=1" title="中国“退党”成热搜 一招教你如何领取退党证  " alt="中国“退党”成热搜 一招教你如何领取退党证  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/vzyswn306/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/vzyswn306/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vzyswn306/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vzyswn306/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/vzyswn306/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vzyswn306/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/vzyswn306/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vzyswn306/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vzyswn306/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/9999999">git.io/9999999</a></div>
+<div align="center">短网址: <a href="https://git.io/szzzz">git.io/szzzz</a></div>
 

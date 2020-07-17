@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rchmfw305/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rchmfw305/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bcccc">git.io/bcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/x99">x.co/x99</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nhhhh">git.io/nhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppf">x.co/ppf</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,32 +20,33 @@
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平心里没底了？疑警告党内：要死一起死  >-009fcc?logoWidth=1" title="习近平心里没底了？疑警告党内：要死一起死  " alt="习近平心里没底了？疑警告党内：要死一起死  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国27省泡水 官称吃有保障 网民大怒：吃蝗>-009fcc?logoWidth=1" title="中国27省泡水 官称吃有保障 网民大怒：吃蝗虫吧  " alt="中国27省泡水 官称吃有保障 网民大怒：吃蝗虫吧  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895682.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟禁中共党员入境 党媒直呼“比断交严重” >-009fcc?logoWidth=1" title="美拟禁中共党员入境 党媒直呼“比断交严重”  " alt="美拟禁中共党员入境 党媒直呼“比断交严重”  "></a></p>
+<p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邝士山：疫情持续时间长 港人需防范     >-009fcc?logoWidth=1" title="邝士山：疫情持续时间长 港人需防范  " alt="邝士山：疫情持续时间长 港人需防范  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/12/a102892257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国或禁中共党员和家属入境 “退党”成热搜 >-009fcc?logoWidth=1" title="美国或禁中共党员和家属入境 “退党”成热搜  " alt="美国或禁中共党员和家属入境 “退党”成热搜  "></a></p>
-<p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895953.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无惧国安阴霾 香港法轮功坚持讲真相获赞   >-009fcc?logoWidth=1" title="无惧国安阴霾 香港法轮功坚持讲真相获赞  " alt="无惧国安阴霾 香港法轮功坚持讲真相获赞  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆乌鲁木齐爆新疫情 地铁公交停运 9成航班>-009fcc?logoWidth=1" title="新疆乌鲁木齐爆新疫情 地铁公交停运 9成航班取消  " alt="新疆乌鲁木齐爆新疫情 地铁公交停运 9成航班取消  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895814.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大政要呼吁：制裁迫害法轮功的中共官员  >-009fcc?logoWidth=1" title="加拿大政要呼吁：制裁迫害法轮功的中共官员  " alt="加拿大政要呼吁：制裁迫害法轮功的中共官员  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895831.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逃离中国 法轮功学员王东曝中共酷刑迫害   >-009fcc?logoWidth=1" title="逃离中国 法轮功学员王东曝中共酷刑迫害  " alt="逃离中国 法轮功学员王东曝中共酷刑迫害  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/16/n12260330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共党员将被禁止入美国？网络欢腾     >-009fcc?logoWidth=1" title="传中共党员将被禁止入美国？网络欢腾  " alt="传中共党员将被禁止入美国？网络欢腾  "></a></p>
 <p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/16/n12261417.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中科院核安全所90多人集体辞职 网曝内幕  >-009fcc?logoWidth=1" title="中科院核安全所90多人集体辞职 网曝内幕  " alt="中科院核安全所90多人集体辞职 网曝内幕  "></a></p>
-<p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/16/n12261667.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宋善：此时不退党 更待何时         >-009fcc?logoWidth=1" title="宋善：此时不退党 更待何时  " alt="宋善：此时不退党 更待何时  "></a></p>
-<p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/16/n12261940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：洪水滔天 各级领导上行下效玩失踪？  >-009fcc?logoWidth=1" title="钟原：洪水滔天 各级领导上行下效玩失踪？  " alt="钟原：洪水滔天 各级领导上行下效玩失踪？  "></a></p>
 <p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/17/n12262420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美飞行物纵贯中国？习卫军换帅        >-009fcc?logoWidth=1" title="美飞行物纵贯中国？习卫军换帅  " alt="美飞行物纵贯中国？习卫军换帅  "></a></p>
+<p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/16/n12261893.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白邦瑞：旅行禁令将剥夺中共的合法性     >-009fcc?logoWidth=1" title="白邦瑞：旅行禁令将剥夺中共的合法性  " alt="白邦瑞：旅行禁令将剥夺中共的合法性  "></a></p>
+<p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/16/n12261940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：洪水滔天 各级领导上行下效玩失踪？  >-009fcc?logoWidth=1" title="钟原：洪水滔天 各级领导上行下效玩失踪？  " alt="钟原：洪水滔天 各级领导上行下效玩失踪？  "></a></p>
 <p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/16/n12261937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中关系翻船 林郑韩正下波制裁？      >-009fcc?logoWidth=1" title="美中关系翻船 林郑韩正下波制裁？  " alt="美中关系翻船 林郑韩正下波制裁？  "></a></p>
 <p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/17/n12262969.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：中共党员快退党 美或颁禁令敲警钟   >-009fcc?logoWidth=1" title="田云：中共党员快退党 美或颁禁令敲警钟  " alt="田云：中共党员快退党 美或颁禁令敲警钟  "></a></p>
 <p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/14/n12254429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京女子监狱严防“狱情泄露”     >-009fcc?logoWidth=1" title="组图：北京女子监狱严防“狱情泄露”  " alt="组图：北京女子监狱严防“狱情泄露”  "></a></p>
-<p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/16/n12261893.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白邦瑞：旅行禁令将剥夺中共的合法性     >-009fcc?logoWidth=1" title="白邦瑞：旅行禁令将剥夺中共的合法性  " alt="白邦瑞：旅行禁令将剥夺中共的合法性  "></a></p>
-<p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/16/n12260021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢田：川普重拳反击 中共内部为何恁多想不到 >-009fcc?logoWidth=1" title="谢田：川普重拳反击 中共内部为何恁多想不到  " alt="谢田：川普重拳反击 中共内部为何恁多想不到  "></a></p>
-<p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/17/n12262373.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普频出大招 中共劫数难逃         >-009fcc?logoWidth=1" title="川普频出大招 中共劫数难逃  " alt="川普频出大招 中共劫数难逃  "></a></p>
 <p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/16/n12259953.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抗日名将后代：只有法轮功 才能重塑国人灵魂（>-009fcc?logoWidth=1" title="抗日名将后代：只有法轮功 才能重塑国人灵魂（上）  " alt="抗日名将后代：只有法轮功 才能重塑国人灵魂（上）  "></a></p>
+<p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/6/n12236053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/有关习的35,476个敏感词        >-009fcc?logoWidth=1" title="有关习的35,476个敏感词  " alt="有关习的35,476个敏感词  "></a></p>
+<p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/17/n12262373.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普频出大招 中共劫数难逃         >-009fcc?logoWidth=1" title="川普频出大招 中共劫数难逃  " alt="川普频出大招 中共劫数难逃  "></a></p>
+<p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/17/n12262248.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦出逃曝中共瞒疫真相 蓬佩奥如何看   >-009fcc?logoWidth=1" title="闫丽梦出逃曝中共瞒疫真相 蓬佩奥如何看  " alt="闫丽梦出逃曝中共瞒疫真相 蓬佩奥如何看  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/16/n12260453.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟禁中共党员入境 微博欢腾：全票通过   >-009fcc?logoWidth=1" title="美拟禁中共党员入境 微博欢腾：全票通过  " alt="美拟禁中共党员入境 微博欢腾：全票通过  "></a></p>
+<p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/16/n12260021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢田：川普重拳反击 中共内部为何恁多想不到 >-009fcc?logoWidth=1" title="谢田：川普重拳反击 中共内部为何恁多想不到  " alt="谢田：川普重拳反击 中共内部为何恁多想不到  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895871.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外星人来访？ 法国突然出现神秘麦田圈（视频）>-009fcc?logoWidth=1" title="外星人来访？ 法国突然出现神秘麦田圈（视频）  " alt="外星人来访？ 法国突然出现神秘麦田圈（视频）  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/九千万党员禁止来美？川普签署的可行性分析  >-009fcc?logoWidth=1" title="九千万党员禁止来美？川普签署的可行性分析  " alt="九千万党员禁止来美？川普签署的可行性分析  "></a></p>
-<p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/17/n12262248.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦出逃曝中共瞒疫真相 蓬佩奥如何看   >-009fcc?logoWidth=1" title="闫丽梦出逃曝中共瞒疫真相 蓬佩奥如何看  " alt="闫丽梦出逃曝中共瞒疫真相 蓬佩奥如何看  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国人民银行放水 大陆房地产市场异动 谁是最>-009fcc?logoWidth=1" title="中国人民银行放水 大陆房地产市场异动 谁是最大赢家？  " alt="中国人民银行放水 大陆房地产市场异动 谁是最大赢家？  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千岛湖泄洪 主角儿是胖头鱼         >-009fcc?logoWidth=1" title="千岛湖泄洪 主角儿是胖头鱼  " alt="千岛湖泄洪 主角儿是胖头鱼  "></a></p>
 <p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/16/n12261835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美司法部长对华演讲：中共本质从未改变    >-009fcc?logoWidth=1" title="美司法部长对华演讲：中共本质从未改变  " alt="美司法部长对华演讲：中共本质从未改变  "></a></p>
+<p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/16/n12261667.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宋善：此时不退党 更待何时         >-009fcc?logoWidth=1" title="宋善：此时不退党 更待何时  " alt="宋善：此时不退党 更待何时  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/16/a102895460.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股全线暴跌 超200股跌停 网评:这茬韭菜>-009fcc?logoWidth=1" title="A股全线暴跌 超200股跌停 网评:这茬韭菜割太快  " alt="A股全线暴跌 超200股跌停 网评:这茬韭菜割太快  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -484,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rchmfw305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rchmfw305/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rchmfw305/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rchmfw305/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rchmfw305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rchmfw305/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rchmfw305/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rchmfw305/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bcccc">git.io/bcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/nhhhh">git.io/nhhhh</a></div>
 

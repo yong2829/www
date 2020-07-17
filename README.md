@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rchmfw305/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rchmfw305/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/piiii">git.io/piiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/vaa">x.co/vaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dnnnn">git.io/dnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pqp">x.co/pqp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,15 +39,16 @@
 <p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/17/n12262373.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普频出大招 中共劫数难逃         >-009fcc?logoWidth=1" title="川普频出大招 中共劫数难逃  " alt="川普频出大招 中共劫数难逃  "></a></p>
 <p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/16/n12261937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中关系翻船 林郑韩正下波制裁？      >-009fcc?logoWidth=1" title="美中关系翻船 林郑韩正下波制裁？  " alt="美中关系翻船 林郑韩正下波制裁？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102896016.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：中共党员快退党 美或颁禁令敲警钟   >-009fcc?logoWidth=1" title="田云：中共党员快退党 美或颁禁令敲警钟  " alt="田云：中共党员快退党 美或颁禁令敲警钟  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆乌鲁木齐爆新疫情 地铁公交停运 9成航班>-009fcc?logoWidth=1" title="新疆乌鲁木齐爆新疫情 地铁公交停运 9成航班取消  " alt="新疆乌鲁木齐爆新疫情 地铁公交停运 9成航班取消  "></a></p>
-<p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：南海硝烟起 美或石油禁运      >-009fcc?logoWidth=1" title="袁弓夷：南海硝烟起 美或石油禁运  " alt="袁弓夷：南海硝烟起 美或石油禁运  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895871.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外星人来访？ 法国突然出现神秘麦田圈（视频）>-009fcc?logoWidth=1" title="外星人来访？ 法国突然出现神秘麦田圈（视频）  " alt="外星人来访？ 法国突然出现神秘麦田圈（视频）  "></a></p>
 <p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/17/n12263101.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌鲁木齐确诊病例急增 封城传闻四起     >-009fcc?logoWidth=1" title="乌鲁木齐确诊病例急增 封城传闻四起  " alt="乌鲁木齐确诊病例急增 封城传闻四起  "></a></p>
-<p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/九千万党员禁止来美？川普签署的可行性分析  >-009fcc?logoWidth=1" title="九千万党员禁止来美？川普签署的可行性分析  " alt="九千万党员禁止来美？川普签署的可行性分析  "></a></p>
+<p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/16/n12261940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：洪水滔天 各级领导上行下效玩失踪？  >-009fcc?logoWidth=1" title="钟原：洪水滔天 各级领导上行下效玩失踪？  " alt="钟原：洪水滔天 各级领导上行下效玩失踪？  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国人民银行放水 大陆房地产市场异动 谁是最>-009fcc?logoWidth=1" title="中国人民银行放水 大陆房地产市场异动 谁是最大赢家？  " alt="中国人民银行放水 大陆房地产市场异动 谁是最大赢家？  "></a></p>
-<p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/17/n12262884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南吉首前公安局高官作黑老大保护伞     >-009fcc?logoWidth=1" title="湖南吉首前公安局高官作黑老大保护伞  " alt="湖南吉首前公安局高官作黑老大保护伞  "></a></p>
+<p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/九千万党员禁止来美？川普签署的可行性分析  >-009fcc?logoWidth=1" title="九千万党员禁止来美？川普签署的可行性分析  " alt="九千万党员禁止来美？川普签署的可行性分析  "></a></p>
+<p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/17/n12263313.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度染疫人数破百万 官员：只有上帝能救我们 >-009fcc?logoWidth=1" title="印度染疫人数破百万 官员：只有上帝能救我们  " alt="印度染疫人数破百万 官员：只有上帝能救我们  "></a></p>
 <p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/16/n12261835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美司法部长对华演讲：中共本质从未改变    >-009fcc?logoWidth=1" title="美司法部长对华演讲：中共本质从未改变  " alt="美司法部长对华演讲：中共本质从未改变  "></a></p>
-<p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千岛湖泄洪 主角儿是胖头鱼         >-009fcc?logoWidth=1" title="千岛湖泄洪 主角儿是胖头鱼  " alt="千岛湖泄洪 主角儿是胖头鱼  "></a></p>
+<p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：南海硝烟起 美或石油禁运      >-009fcc?logoWidth=1" title="袁弓夷：南海硝烟起 美或石油禁运  " alt="袁弓夷：南海硝烟起 美或石油禁运  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -485,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rchmfw305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rchmfw305/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rchmfw305/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rchmfw305/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rchmfw305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rchmfw305/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rchmfw305/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rchmfw305/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/piiii">git.io/piiii</a></div>
+<div align="center">短网址: <a href="https://git.io/dnnnn">git.io/dnnnn</a></div>
 

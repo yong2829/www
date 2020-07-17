@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rchmfw305/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rchmfw305/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eeeeeeee">git.io/eeeeeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p5p">x.co/p5p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c3333">git.io/c3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2aa">x.co/2aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,6 +39,16 @@
 <p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/17/n12262373.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普频出大招 中共劫数难逃         >-009fcc?logoWidth=1" title="川普频出大招 中共劫数难逃  " alt="川普频出大招 中共劫数难逃  "></a></p>
 <p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/16/n12261937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中关系翻船 林郑韩正下波制裁？      >-009fcc?logoWidth=1" title="美中关系翻船 林郑韩正下波制裁？  " alt="美中关系翻船 林郑韩正下波制裁？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895742.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林郑嘴硬不怕美制裁 网爆其小儿子在哈佛工作 >-009fcc?logoWidth=1" title="林郑嘴硬不怕美制裁 网爆其小儿子在哈佛工作  " alt="林郑嘴硬不怕美制裁 网爆其小儿子在哈佛工作  "></a></p>
+<p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中科院近百科学家集体辞职 传惊动中共高层  >-009fcc?logoWidth=1" title="中科院近百科学家集体辞职 传惊动中共高层  " alt="中科院近百科学家集体辞职 传惊动中共高层  "></a></p>
+<p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895701.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会或取消 习严防红二代政变      >-009fcc?logoWidth=1" title="北戴河会或取消 习严防红二代政变  " alt="北戴河会或取消 习严防红二代政变  "></a></p>
+<p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/17/n12263101.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌鲁木齐现确诊病例 交通大乱民众恐慌    >-009fcc?logoWidth=1" title="乌鲁木齐现确诊病例 交通大乱民众恐慌  " alt="乌鲁木齐现确诊病例 交通大乱民众恐慌  "></a></p>
+<p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/17/n12263313.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度染疫人数破百万 官员：只有上帝能救我们 >-009fcc?logoWidth=1" title="印度染疫人数破百万 官员：只有上帝能救我们  " alt="印度染疫人数破百万 官员：只有上帝能救我们  "></a></p>
+<p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102896039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆老兵爆料共军演习内幕          >-009fcc?logoWidth=1" title="大陆老兵爆料共军演习内幕  " alt="大陆老兵爆料共军演习内幕  "></a></p>
+<p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/17/n12262221.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国股市为何暴跌 中共党员禁入美      >-009fcc?logoWidth=1" title="中国股市为何暴跌 中共党员禁入美  " alt="中国股市为何暴跌 中共党员禁入美  "></a></p>
+<p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/16/n12261940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：洪水滔天 各级领导上行下效玩失踪？  >-009fcc?logoWidth=1" title="钟原：洪水滔天 各级领导上行下效玩失踪？  " alt="钟原：洪水滔天 各级领导上行下效玩失踪？  "></a></p>
+<p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102896016.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：中共党员快退党 美或颁禁令敲警钟   >-009fcc?logoWidth=1" title="田云：中共党员快退党 美或颁禁令敲警钟  " alt="田云：中共党员快退党 美或颁禁令敲警钟  "></a></p>
+<p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆乌鲁木齐爆新疫情 地铁公交停运 9成航班>-009fcc?logoWidth=1" title="新疆乌鲁木齐爆新疫情 地铁公交停运 9成航班取消  " alt="新疆乌鲁木齐爆新疫情 地铁公交停运 9成航班取消  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -476,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rchmfw305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rchmfw305/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rchmfw305/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rchmfw305/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rchmfw305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rchmfw305/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rchmfw305/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rchmfw305/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/eeeeeeee">git.io/eeeeeeee</a></div>
+<div align="center">短网址: <a href="https://git.io/c3333">git.io/c3333</a></div>
 

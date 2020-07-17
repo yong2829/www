@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rchmfw305/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rchmfw305/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ukkkk">git.io/ukkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/jpp">x.co/jpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jjjjjj">git.io/jjjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2888">x.co/2888</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,8 +22,8 @@
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895682.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟禁中共党员入境 党媒直呼“比断交严重” >-009fcc?logoWidth=1" title="美拟禁中共党员入境 党媒直呼“比断交严重”  " alt="美拟禁中共党员入境 党媒直呼“比断交严重”  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102896056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普选战新经理制定策略 目标:每天都赢   >-009fcc?logoWidth=1" title="川普选战新经理制定策略 目标:每天都赢  " alt="川普选战新经理制定策略 目标:每天都赢  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102896086.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最高法院暂禁佛州前重罪犯投票 或左右摇摆州选>-009fcc?logoWidth=1" title="最高法院暂禁佛州前重罪犯投票 或左右摇摆州选情  " alt="最高法院暂禁佛州前重罪犯投票 或左右摇摆州选情  "></a></p>
+<p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102896051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前田径运动员谈中共体制下训练黑幕(二）   >-009fcc?logoWidth=1" title="前田径运动员谈中共体制下训练黑幕(二）  " alt="前田径运动员谈中共体制下训练黑幕(二）  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102896044.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/苹果手机电池门挨告 手机用户可获25美元赔偿>-009fcc?logoWidth=1" title="苹果手机电池门挨告 手机用户可获25美元赔偿  " alt="苹果手机电池门挨告 手机用户可获25美元赔偿  "></a></p>
-<p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102896061.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”引发德国各界反对默克尔亲共  >-009fcc?logoWidth=1" title="“港版国安法”引发德国各界反对默克尔亲共  " alt="“港版国安法”引发德国各界反对默克尔亲共  "></a></p>
 <p><a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/2020/07/17/a102895984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邝士山：疫情持续时间长 港人需防范     >-009fcc?logoWidth=1" title="邝士山：疫情持续时间长 港人需防范  " alt="邝士山：疫情持续时间长 港人需防范  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rchmfw305/djy/blob/master/gb/20/7/16/n12260330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共党员将被禁止入美国？网络欢腾     >-009fcc?logoWidth=1" title="传中共党员将被禁止入美国？网络欢腾  " alt="传中共党员将被禁止入美国？网络欢腾  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rchmfw305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rchmfw305/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rchmfw305/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rchmfw305/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rchmfw305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rchmfw305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rchmfw305/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rchmfw305/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rchmfw305/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ukkkk">git.io/ukkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/jjjjjj">git.io/jjjjjj</a></div>
 

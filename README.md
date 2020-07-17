@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/lnbrjb3424/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/lnbrjb3424/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pssss">git.io/pssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aia">x.co/aia</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mjjjj">git.io/mjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppi">x.co/ppi</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/2020/07/17/a102895682.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟禁中共党员入境 党媒直呼“比断交严重” >-009fcc?logoWidth=1" title="美拟禁中共党员入境 党媒直呼“比断交严重”  " alt="美拟禁中共党员入境 党媒直呼“比断交严重”  "></a></p>
+<p><a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/2020/07/17/a102895681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟禁中共党员及家属入境 女袁木回应火了  >-009fcc?logoWidth=1" title="美拟禁中共党员及家属入境 女袁木回应火了  " alt="美拟禁中共党员及家属入境 女袁木回应火了  "></a></p>
 <p><a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/2020/07/17/a102895653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中科院近百科学家集体辞职 传惊动中共高层  >-009fcc?logoWidth=1" title="中科院近百科学家集体辞职 传惊动中共高层  " alt="中科院近百科学家集体辞职 传惊动中共高层  "></a></p>
 <p><a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/2020/07/16/a102895456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟禁中共党员入境 陆网友一片欢呼     >-009fcc?logoWidth=1" title="美拟禁中共党员入境 陆网友一片欢呼  " alt="美拟禁中共党员入境 陆网友一片欢呼  "></a></p>
 <p><a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/2020/07/16/a102895460.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股全线暴跌 超200股跌停 网评:这茬韭菜>-009fcc?logoWidth=1" title="A股全线暴跌 超200股跌停 网评:这茬韭菜割太快  " alt="A股全线暴跌 超200股跌停 网评:这茬韭菜割太快  "></a></p>
 <p><a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/2020/07/16/a102895458.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁中共指向谁？川普政府拟定4大人群    >-009fcc?logoWidth=1" title="制裁中共指向谁？川普政府拟定4大人群  " alt="制裁中共指向谁？川普政府拟定4大人群  "></a></p>
-<p><a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/2020/07/16/a102895203.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中国大半江山泡水 习“捧月”恐变捞月 >-009fcc?logoWidth=1" title="分析：中国大半江山泡水 习“捧月”恐变捞月  " alt="分析：中国大半江山泡水 习“捧月”恐变捞月  "></a></p>
-<p><a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/2020/07/16/a102895111.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习保党抛新定位/接班人后院起火       >-009fcc?logoWidth=1" title="习保党抛新定位/接班人后院起火  " alt="习保党抛新定位/接班人后院起火  "></a></p>
 <p><a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/2020/07/17/a102895672.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美警联合会发表公开信 正式为川普背书    >-009fcc?logoWidth=1" title="美警联合会发表公开信 正式为川普背书  " alt="美警联合会发表公开信 正式为川普背书  "></a></p>
 <p><a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/2020/07/12/a102892257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国或禁中共党员和家属入境 “退党”成热搜 >-009fcc?logoWidth=1" title="美国或禁中共党员和家属入境 “退党”成热搜  " alt="美国或禁中共党员和家属入境 “退党”成热搜  "></a></p>
 <p><a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/2020/07/16/a102895589.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美司法部长抨好莱坞及科技巨头：持双重标准 向>-009fcc?logoWidth=1" title="美司法部长抨好莱坞及科技巨头：持双重标准 向中共低头  " alt="美司法部长抨好莱坞及科技巨头：持双重标准 向中共低头  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/lnbrjb3424/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/lnbrjb3424/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lnbrjb3424/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/lnbrjb3424/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/lnbrjb3424/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/lnbrjb3424/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lnbrjb3424/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/lnbrjb3424/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/pssss">git.io/pssss</a></div>
+<div align="center">短网址: <a href="https://git.io/mjjjj">git.io/mjjjj</a></div>
 

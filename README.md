@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/lnbrjb3424/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/lnbrjb3424/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h7777">git.io/h7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/bdd">x.co/bdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/5555555">git.io/5555555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/8aa">x.co/8aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/2020/07/16/a102895456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟禁中共党员入境 陆网友一片欢呼     >-009fcc?logoWidth=1" title="美拟禁中共党员入境 陆网友一片欢呼  " alt="美拟禁中共党员入境 陆网友一片欢呼  "></a></p>
+<p><a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/2020/07/16/a102895460.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股全线暴跌 超200股跌停 网评:这茬韭菜>-009fcc?logoWidth=1" title="A股全线暴跌 超200股跌停 网评:这茬韭菜割太快  " alt="A股全线暴跌 超200股跌停 网评:这茬韭菜割太快  "></a></p>
+<p><a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/2020/07/16/a102895458.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁中共指向谁？川普政府拟定4大人群    >-009fcc?logoWidth=1" title="制裁中共指向谁？川普政府拟定4大人群  " alt="制裁中共指向谁？川普政府拟定4大人群  "></a></p>
 <p><a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/2020/07/16/a102895203.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中国大半江山泡水 习“捧月”恐变捞月 >-009fcc?logoWidth=1" title="分析：中国大半江山泡水 习“捧月”恐变捞月  " alt="分析：中国大半江山泡水 习“捧月”恐变捞月  "></a></p>
 <p><a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/2020/07/16/a102895111.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习保党抛新定位/接班人后院起火       >-009fcc?logoWidth=1" title="习保党抛新定位/接班人后院起火  " alt="习保党抛新定位/接班人后院起火  "></a></p>
 <p><a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/2020/07/16/a102895124.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一文看懂 川普对港行政命令7大要点     >-009fcc?logoWidth=1" title="一文看懂 川普对港行政命令7大要点  " alt="一文看懂 川普对港行政命令7大要点  "></a></p>
-<p><a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/2020/07/16/a102894992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“红朝发言人脸谱”火了 三大战狼引热议(视频>-009fcc?logoWidth=1" title="“红朝发言人脸谱”火了 三大战狼引热议(视频)  " alt="“红朝发言人脸谱”火了 三大战狼引热议(视频)  "></a></p>
-<p><a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/2020/07/16/a102894945.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：美中对话性质已变 中共领导人明白这一>-009fcc?logoWidth=1" title="蓬佩奥：美中对话性质已变 中共领导人明白这一点  " alt="蓬佩奥：美中对话性质已变 中共领导人明白这一点  "></a></p>
-<p><a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/2020/07/16/a102894906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卫星抓到三峡大坝“超级泄洪” 王维洛：洪水是>-009fcc?logoWidth=1" title="卫星抓到三峡大坝“超级泄洪” 王维洛：洪水是人为的  " alt="卫星抓到三峡大坝“超级泄洪” 王维洛：洪水是人为的  "></a></p>
 <p><a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/2020/07/16/a102895589.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美司法部长怒斥好莱坞及科技巨头：持双重标准向>-009fcc?logoWidth=1" title="美司法部长怒斥好莱坞及科技巨头：持双重标准向中共低头  " alt="美司法部长怒斥好莱坞及科技巨头：持双重标准向中共低头  "></a></p>
 <p><a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/2020/07/16/a102895550.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法国忍无可忍 效仿美国对等限制中国航班   >-009fcc?logoWidth=1" title="法国忍无可忍 效仿美国对等限制中国航班  " alt="法国忍无可忍 效仿美国对等限制中国航班  "></a></p>
 <p><a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/2020/07/16/a102895519.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/鹰派点名制裁林郑 白宫:制裁名单未定案   >-009fcc?logoWidth=1" title="鹰派点名制裁林郑 白宫:制裁名单未定案  " alt="鹰派点名制裁林郑 白宫:制裁名单未定案  "></a></p>
@@ -40,6 +40,7 @@
 <p><a href="https://github.com/lnbrjb3424/djy/blob/master/gb/20/7/14/n12254987.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“党领导经济”陷泥潭 中共内部也起争议   >-009fcc?logoWidth=1" title="“党领导经济”陷泥潭 中共内部也起争议  " alt="“党领导经济”陷泥潭 中共内部也起争议  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/2020/07/16/a102894915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大凶之兆！习近平保党抛新定位        >-009fcc?logoWidth=1" title="大凶之兆！习近平保党抛新定位  " alt="大凶之兆！习近平保党抛新定位  "></a></p>
+<p><a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/2020/07/16/a102894906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卫星抓到三峡大坝“超级泄洪” 王维洛：洪水是>-009fcc?logoWidth=1" title="卫星抓到三峡大坝“超级泄洪” 王维洛：洪水是人为的  " alt="卫星抓到三峡大坝“超级泄洪” 王维洛：洪水是人为的  "></a></p>
 <p><a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/2020/07/16/a102895060.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/15名党员救灾造假 网友怒批无耻      >-009fcc?logoWidth=1" title="15名党员救灾造假 网友怒批无耻  " alt="15名党员救灾造假 网友怒批无耻  "></a></p>
 <p><a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/2020/07/16/a102894965.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刺激中共 印度人又干两件事/南方洪灾 只有一>-009fcc?logoWidth=1" title="刺激中共 印度人又干两件事/南方洪灾 只有一个建筑不倒  " alt="刺激中共 印度人又干两件事/南方洪灾 只有一个建筑不倒  "></a></p>
 <p><a href="https://github.com/lnbrjb3424/djy/blob/master/gb/20/7/15/n12258859.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：7.20前夕中共诬蔑法轮功的新证据  >-009fcc?logoWidth=1" title="沈舟：7.20前夕中共诬蔑法轮功的新证据  " alt="沈舟：7.20前夕中共诬蔑法轮功的新证据  "></a></p>
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/lnbrjb3424/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/lnbrjb3424/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lnbrjb3424/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/lnbrjb3424/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/lnbrjb3424/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lnbrjb3424/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/lnbrjb3424/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lnbrjb3424/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/lnbrjb3424/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/h7777">git.io/h7777</a></div>
+<div align="center">短网址: <a href="https://git.io/5555555">git.io/5555555</a></div>
 

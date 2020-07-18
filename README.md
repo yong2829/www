@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/awqgth334/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/awqgth334/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g5555">git.io/g5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u33">x.co/u33</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hpppp">git.io/hpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2225">x.co/2225</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/awqgth334/ntdtv/blob/master/gb/2020/07/18/a102896619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/肖建华消失3年多生死不明 旗下9家公司被接管>-009fcc?logoWidth=1" title="肖建华消失3年多生死不明 旗下9家公司被接管  " alt="肖建华消失3年多生死不明 旗下9家公司被接管  "></a></p>
 <p><a href="https://github.com/awqgth334/ntdtv/blob/master/gb/2020/07/18/a102896525.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁名单 韩正林郑邓炳强上榜       >-009fcc?logoWidth=1" title="美制裁名单 韩正林郑邓炳强上榜  " alt="美制裁名单 韩正林郑邓炳强上榜  "></a></p>
 <p><a href="https://github.com/awqgth334/ntdtv/blob/master/gb/2020/07/18/a102896959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅又变脸了！ 对美国破口大骂       >-009fcc?logoWidth=1" title="王毅又变脸了！ 对美国破口大骂  " alt="王毅又变脸了！ 对美国破口大骂  "></a></p>
+<p><a href="https://github.com/awqgth334/ntdtv/blob/master/gb/2020/07/18/a102896916.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球疫情4天增百万 香港感染数超萨斯    >-009fcc?logoWidth=1" title="全球疫情4天增百万 香港感染数超萨斯  " alt="全球疫情4天增百万 香港感染数超萨斯  "></a></p>
 <p><a href="https://github.com/awqgth334/ntdtv/blob/master/gb/2020/07/18/a102896884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民运人士认清中共邪恶 退出共产党组织    >-009fcc?logoWidth=1" title="民运人士认清中共邪恶 退出共产党组织  " alt="民运人士认清中共邪恶 退出共产党组织  "></a></p>
 <p><a href="https://github.com/awqgth334/ntdtv/blob/master/gb/2020/07/18/a102896888.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/旧金山法轮功谴责中共疫情下迫害仍持续    >-009fcc?logoWidth=1" title="旧金山法轮功谴责中共疫情下迫害仍持续  " alt="旧金山法轮功谴责中共疫情下迫害仍持续  "></a></p>
 <p><a href="https://github.com/awqgth334/ntdtv/blob/master/gb/2020/07/18/a102896876.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美财长建议豁免小额薪资保护计划贷款     >-009fcc?logoWidth=1" title="美财长建议豁免小额薪资保护计划贷款  " alt="美财长建议豁免小额薪资保护计划贷款  "></a></p>
-<p><a href="https://github.com/awqgth334/ntdtv/blob/master/gb/2020/07/18/a102896868.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法国南特市十五世纪大教堂疑遭纵火      >-009fcc?logoWidth=1" title="法国南特市十五世纪大教堂疑遭纵火  " alt="法国南特市十五世纪大教堂疑遭纵火  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/awqgth334/djy/blob/master/gb/20/7/17/n12263801.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共党员及家属或被美限入境 内部掀恐慌   >-009fcc?logoWidth=1" title="中共党员及家属或被美限入境 内部掀恐慌  " alt="中共党员及家属或被美限入境 内部掀恐慌  "></a></p>
 <p><a href="https://github.com/awqgth334/djy/blob/master/gb/20/7/16/n12261367.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前审查员：TikTok信息送中国审查    >-009fcc?logoWidth=1" title="前审查员：TikTok信息送中国审查  " alt="前审查员：TikTok信息送中国审查  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/awqgth334/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/awqgth334/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/awqgth334/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/awqgth334/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/awqgth334/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/awqgth334/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/awqgth334/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/awqgth334/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/awqgth334/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/awqgth334/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/g5555">git.io/g5555</a></div>
+<div align="center">短网址: <a href="https://git.io/hpppp">git.io/hpppp</a></div>
 

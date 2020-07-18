@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/umfebr302/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/umfebr302/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/555555">git.io/555555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3888">x.co/3888</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gtttt">git.io/gtttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/eaa">x.co/eaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,26 +28,26 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/umfebr302/djy/blob/master/gb/20/7/17/n12263801.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共党员及家属或被美限入境 内部掀恐慌   >-009fcc?logoWidth=1" title="中共党员及家属或被美限入境 内部掀恐慌  " alt="中共党员及家属或被美限入境 内部掀恐慌  "></a></p>
 <p><a href="https://github.com/umfebr302/djy/blob/master/gb/20/7/17/n12264148.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/保长江与大城市 安徽泄洪淹多村       >-009fcc?logoWidth=1" title="保长江与大城市 安徽泄洪淹多村  " alt="保长江与大城市 安徽泄洪淹多村  "></a></p>
-<p><a href="https://github.com/umfebr302/djy/blob/master/gb/20/7/17/n12264495.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港高官家人资产均在英美 若被制裁恐无一幸免 >-009fcc?logoWidth=1" title="港高官家人资产均在英美 若被制裁恐无一幸免  " alt="港高官家人资产均在英美 若被制裁恐无一幸免  "></a></p>
-<p><a href="https://github.com/umfebr302/djy/blob/master/gb/20/7/17/n12264617.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共政治局为什么突开网络会议     >-009fcc?logoWidth=1" title="钟原：中共政治局为什么突开网络会议  " alt="钟原：中共政治局为什么突开网络会议  "></a></p>
-<p><a href="https://github.com/umfebr302/djy/blob/master/gb/20/7/17/n12264447.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美领军世界反共 华人如何自保？       >-009fcc?logoWidth=1" title="美领军世界反共 华人如何自保？  " alt="美领军世界反共 华人如何自保？  "></a></p>
-<p><a href="https://github.com/umfebr302/djy/blob/master/gb/20/7/6/n12236053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/有关习的35,476个敏感词        >-009fcc?logoWidth=1" title="有关习的35,476个敏感词  " alt="有关习的35,476个敏感词  "></a></p>
-<p><a href="https://github.com/umfebr302/djy/blob/master/gb/20/7/16/n12260021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢田：川普重拳反击 中共内部为何恁多想不到 >-009fcc?logoWidth=1" title="谢田：川普重拳反击 中共内部为何恁多想不到  " alt="谢田：川普重拳反击 中共内部为何恁多想不到  "></a></p>
-<p><a href="https://github.com/umfebr302/djy/blob/master/gb/20/7/17/n12264329.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院记录法轮功受迫害情况        >-009fcc?logoWidth=1" title="美国务院记录法轮功受迫害情况  " alt="美国务院记录法轮功受迫害情况  "></a></p>
 <p><a href="https://github.com/umfebr302/djy/blob/master/gb/20/7/17/n12264061.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美“凌迟式”制裁 港亲共高官承认寒蝉效应  >-009fcc?logoWidth=1" title="美“凌迟式”制裁 港亲共高官承认寒蝉效应  " alt="美“凌迟式”制裁 港亲共高官承认寒蝉效应  "></a></p>
+<p><a href="https://github.com/umfebr302/djy/blob/master/gb/20/7/17/n12262420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美飞行物纵贯中国？习卫军换帅        >-009fcc?logoWidth=1" title="美飞行物纵贯中国？习卫军换帅  " alt="美飞行物纵贯中国？习卫军换帅  "></a></p>
+<p><a href="https://github.com/umfebr302/djy/blob/master/gb/20/7/17/n12262969.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：中共党员快退党 美或颁禁令敲警钟   >-009fcc?logoWidth=1" title="田云：中共党员快退党 美或颁禁令敲警钟  " alt="田云：中共党员快退党 美或颁禁令敲警钟  "></a></p>
+<p><a href="https://github.com/umfebr302/djy/blob/master/gb/20/7/6/n12236053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/有关习的35,476个敏感词        >-009fcc?logoWidth=1" title="有关习的35,476个敏感词  " alt="有关习的35,476个敏感词  "></a></p>
+<p><a href="https://github.com/umfebr302/djy/blob/master/gb/20/7/16/n12261893.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白邦瑞：旅行禁令将剥夺中共的合法性     >-009fcc?logoWidth=1" title="白邦瑞：旅行禁令将剥夺中共的合法性  " alt="白邦瑞：旅行禁令将剥夺中共的合法性  "></a></p>
+<p><a href="https://github.com/umfebr302/djy/blob/master/gb/20/7/17/n12264329.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院记录法轮功受迫害情况        >-009fcc?logoWidth=1" title="美国务院记录法轮功受迫害情况  " alt="美国务院记录法轮功受迫害情况  "></a></p>
 <p><a href="https://github.com/umfebr302/djy/blob/master/gb/20/7/17/n12262157.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洛杉矶中国移民眼中的《大纪元时报》     >-009fcc?logoWidth=1" title="洛杉矶中国移民眼中的《大纪元时报》  " alt="洛杉矶中国移民眼中的《大纪元时报》  "></a></p>
-<p><a href="https://github.com/umfebr302/djy/blob/master/gb/20/7/18/n12264830.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁 中共内部现恐慌           >-009fcc?logoWidth=1" title="美制裁 中共内部现恐慌  " alt="美制裁 中共内部现恐慌  "></a></p>
+<p><a href="https://github.com/umfebr302/djy/blob/master/gb/20/7/17/n12264427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉芬太尼贩运 4中国人和一实体遭美制裁   >-009fcc?logoWidth=1" title="涉芬太尼贩运 4中国人和一实体遭美制裁  " alt="涉芬太尼贩运 4中国人和一实体遭美制裁  "></a></p>
+<p><a href="https://github.com/umfebr302/djy/blob/master/gb/20/7/16/n12260021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢田：川普重拳反击 中共内部为何恁多想不到 >-009fcc?logoWidth=1" title="谢田：川普重拳反击 中共内部为何恁多想不到  " alt="谢田：川普重拳反击 中共内部为何恁多想不到  "></a></p>
 <p><a href="https://github.com/umfebr302/djy/blob/master/gb/20/7/17/n12264411.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒：越南藏尸案 中共假新闻中伤法轮功   >-009fcc?logoWidth=1" title="外媒：越南藏尸案 中共假新闻中伤法轮功  " alt="外媒：越南藏尸案 中共假新闻中伤法轮功  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/umfebr302/djy/blob/master/gb/20/7/17/n12264427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉芬太尼贩运 4中国人和一实体遭美制裁   >-009fcc?logoWidth=1" title="涉芬太尼贩运 4中国人和一实体遭美制裁  " alt="涉芬太尼贩运 4中国人和一实体遭美制裁  "></a></p>
 <p><a href="https://github.com/umfebr302/ntdtv/blob/master/gb/2020/07/17/a102896302.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江2号洪水猛灌三峡大坝  4天后抵达武汉 >-009fcc?logoWidth=1" title="长江2号洪水猛灌三峡大坝  4天后抵达武汉  " alt="长江2号洪水猛灌三峡大坝  4天后抵达武汉  "></a></p>
-<p><a href="https://github.com/umfebr302/ntdtv/blob/master/gb/2020/07/18/a102896466.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军双航母南海操演 习喊“保党保权”    >-009fcc?logoWidth=1" title="美军双航母南海操演 习喊“保党保权”  " alt="美军双航母南海操演 习喊“保党保权”  "></a></p>
+<p><a href="https://github.com/umfebr302/ntdtv/blob/master/gb/2020/07/18/a102896466.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习逃避洪灾，是内斗还是决策疲劳？      >-009fcc?logoWidth=1" title="习逃避洪灾，是内斗还是决策疲劳？  " alt="习逃避洪灾，是内斗还是决策疲劳？  "></a></p>
 <p><a href="https://github.com/umfebr302/ntdtv/blob/master/gb/2020/07/16/a102894980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美飞行物纵贯中国！习卫军换帅        >-009fcc?logoWidth=1" title="美飞行物纵贯中国！习卫军换帅  " alt="美飞行物纵贯中国！习卫军换帅  "></a></p>
 <p><a href="https://github.com/umfebr302/ntdtv/blob/master/gb/2020/07/17/a102895852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平心里没底了？疑警告党内：要死一起死  >-009fcc?logoWidth=1" title="习近平心里没底了？疑警告党内：要死一起死  " alt="习近平心里没底了？疑警告党内：要死一起死  "></a></p>
 <p><a href="https://github.com/umfebr302/djy/blob/master/gb/20/7/17/n12263286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张林：彭培奥确定中共的帝国主义性质     >-009fcc?logoWidth=1" title="张林：彭培奥确定中共的帝国主义性质  " alt="张林：彭培奥确定中共的帝国主义性质  "></a></p>
 <p><a href="https://github.com/umfebr302/djy/blob/master/gb/20/7/17/n12264364.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共声称“丰收” 民众：水泡虫咬还丰收？  >-009fcc?logoWidth=1" title="中共声称“丰收” 民众：水泡虫咬还丰收？  " alt="中共声称“丰收” 民众：水泡虫咬还丰收？  "></a></p>
 <p><a href="https://github.com/umfebr302/ntdtv/blob/master/gb/2020/07/17/a102895742.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林郑嘴硬不怕美制裁 网爆其小儿子在哈佛工作 >-009fcc?logoWidth=1" title="林郑嘴硬不怕美制裁 网爆其小儿子在哈佛工作  " alt="林郑嘴硬不怕美制裁 网爆其小儿子在哈佛工作  "></a></p>
 <p><a href="https://github.com/umfebr302/ntdtv/blob/master/gb/2020/07/17/a102896421.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空： 政变惊险近两月 卫戍司令换人 才敢>-009fcc?logoWidth=1" title="陈破空： 政变惊险近两月 卫戍司令换人 才敢重开常委会 却只有习近平的名字  " alt="陈破空： 政变惊险近两月 卫戍司令换人 才敢重开常委会 却只有习近平的名字  "></a></p>
+<p><a href="https://github.com/umfebr302/djy/blob/master/gb/20/7/17/n12264495.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港高官家人资产均在英美 若被制裁恐无一幸免 >-009fcc?logoWidth=1" title="港高官家人资产均在英美 若被制裁恐无一幸免  " alt="港高官家人资产均在英美 若被制裁恐无一幸免  "></a></p>
 <p><a href="https://github.com/umfebr302/djy/blob/master/gb/20/7/17/n12264161.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/特大暴雨 上游泄洪 湖北恩施大面积被淹   >-009fcc?logoWidth=1" title="特大暴雨 上游泄洪 湖北恩施大面积被淹  " alt="特大暴雨 上游泄洪 湖北恩施大面积被淹  "></a></p>
 <p><a href="https://github.com/umfebr302/ntdtv/blob/master/gb/2020/07/17/a102895653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中科院近百科学家集体辞职 传惊动中共高层  >-009fcc?logoWidth=1" title="中科院近百科学家集体辞职 传惊动中共高层  " alt="中科院近百科学家集体辞职 传惊动中共高层  "></a></p>
 <p><a href="https://github.com/umfebr302/ntdtv/blob/master/gb/2020/07/17/a102895681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟禁中共党员及家属入境 女袁木回应火了  >-009fcc?logoWidth=1" title="美拟禁中共党员及家属入境 女袁木回应火了  " alt="美拟禁中共党员及家属入境 女袁木回应火了  "></a></p>
@@ -489,7 +489,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/umfebr302/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/umfebr302/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/umfebr302/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/umfebr302/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/umfebr302/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/umfebr302/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/umfebr302/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/555555">git.io/555555</a></div>
+<div align="center">短网址: <a href="https://git.io/gtttt">git.io/gtttt</a></div>
 

@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/atmnqo3700/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/atmnqo3700/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mxxxx">git.io/mxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a4a">x.co/a4a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/p3333">git.io/p3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/6pp">x.co/6pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,15 +40,15 @@
 <p><a href="https://github.com/atmnqo3700/djy/blob/master/gb/20/7/16/n12261367.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前审查员：TikTok信息送中国审查    >-009fcc?logoWidth=1" title="前审查员：TikTok信息送中国审查  " alt="前审查员：TikTok信息送中国审查  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/17/a102896434.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“天灭中共 结束迫害”网络研讨会      >-009fcc?logoWidth=1" title="“天灭中共 结束迫害”网络研讨会  " alt="“天灭中共 结束迫害”网络研讨会  "></a></p>
-<p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/17/a102896178.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/半壁江山泡水 习为何不露面？        >-009fcc?logoWidth=1" title="半壁江山泡水 习为何不露面？  " alt="半壁江山泡水 习为何不露面？  "></a></p>
-<p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/17/a102896072.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国股市为何暴跌 中共党员禁入美 你怎么办 >-009fcc?logoWidth=1" title="中国股市为何暴跌 中共党员禁入美 你怎么办  " alt="中国股市为何暴跌 中共党员禁入美 你怎么办  "></a></p>
+<p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/17/a102896150.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传武汉女斧劈市政府门牌 中国网民一片叫好  >-009fcc?logoWidth=1" title="传武汉女斧劈市政府门牌 中国网民一片叫好  " alt="传武汉女斧劈市政府门牌 中国网民一片叫好  "></a></p>
+<p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/18/a102896624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南海生变 谁打响第一枪           >-009fcc?logoWidth=1" title="南海生变 谁打响第一枪  " alt="南海生变 谁打响第一枪  "></a></p>
 <p><a href="https://github.com/atmnqo3700/djy/blob/master/gb/20/7/17/n12264495.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港高官家人资产均在英美 若被制裁恐无一幸免 >-009fcc?logoWidth=1" title="港高官家人资产均在英美 若被制裁恐无一幸免  " alt="港高官家人资产均在英美 若被制裁恐无一幸免  "></a></p>
 <p><a href="https://github.com/atmnqo3700/djy/blob/master/gb/20/7/18/n12264799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：华春莹的“可悲”与胡锡进的“不满”  >-009fcc?logoWidth=1" title="袁斌：华春莹的“可悲”与胡锡进的“不满”  " alt="袁斌：华春莹的“可悲”与胡锡进的“不满”  "></a></p>
-<p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/18/a102896459.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:美“惊涛掌”吊打中共 禁9千万党员入境>-009fcc?logoWidth=1" title="文昭:美“惊涛掌”吊打中共 禁9千万党员入境有办法  " alt="文昭:美“惊涛掌”吊打中共 禁9千万党员入境有办法  "></a></p>
-<p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/17/a102895852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平心里没底了？疑警告党内：要死一起死  >-009fcc?logoWidth=1" title="习近平心里没底了？疑警告党内：要死一起死  " alt="习近平心里没底了？疑警告党内：要死一起死  "></a></p>
+<p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/17/a102896072.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国股市为何暴跌 中共党员禁入美 你怎么办 >-009fcc?logoWidth=1" title="中国股市为何暴跌 中共党员禁入美 你怎么办  " alt="中国股市为何暴跌 中共党员禁入美 你怎么办  "></a></p>
 <p><a href="https://github.com/atmnqo3700/djy/blob/master/gb/20/6/9/n12173862.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/格里克：美中都撒钱 有何不同？       >-009fcc?logoWidth=1" title="格里克：美中都撒钱 有何不同？  " alt="格里克：美中都撒钱 有何不同？  "></a></p>
 <p><a href="https://github.com/atmnqo3700/djy/blob/master/gb/20/7/17/n12264364.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共声称“丰收” 民众：水泡虫咬还丰收？  >-009fcc?logoWidth=1" title="中共声称“丰收” 民众：水泡虫咬还丰收？  " alt="中共声称“丰收” 民众：水泡虫咬还丰收？  "></a></p>
-<p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/17/a102896216.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共专家奇论：美禁党员入境是想“颠覆共产党”>-009fcc?logoWidth=1" title="中共专家奇论：美禁党员入境是想“颠覆共产党”  " alt="中共专家奇论：美禁党员入境是想“颠覆共产党”  "></a></p>
+<p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/18/a102896459.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:美“惊涛掌”吊打中共 禁9千万党员入境>-009fcc?logoWidth=1" title="文昭:美“惊涛掌”吊打中共 禁9千万党员入境有办法  " alt="文昭:美“惊涛掌”吊打中共 禁9千万党员入境有办法  "></a></p>
+<p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/17/a102895852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平心里没底了？疑警告党内：要死一起死  >-009fcc?logoWidth=1" title="习近平心里没底了？疑警告党内：要死一起死  " alt="习近平心里没底了？疑警告党内：要死一起死  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/atmnqo3700/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/atmnqo3700/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/atmnqo3700/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/atmnqo3700/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/atmnqo3700/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/atmnqo3700/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/atmnqo3700/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/atmnqo3700/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mxxxx">git.io/mxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/p3333">git.io/p3333</a></div>
 

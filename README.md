@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/atmnqo3700/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/atmnqo3700/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gdddd">git.io/gdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2888">x.co/2888</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/unnnn">git.io/unnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/jpp">x.co/jpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,16 +28,16 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/atmnqo3700/djy/blob/master/gb/20/7/17/n12263801.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共党员及家属或被美限入境 内部掀恐慌   >-009fcc?logoWidth=1" title="中共党员及家属或被美限入境 内部掀恐慌  " alt="中共党员及家属或被美限入境 内部掀恐慌  "></a></p>
 <p><a href="https://github.com/atmnqo3700/djy/blob/master/gb/20/7/17/n12264617.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共政治局为什么突开网络会议     >-009fcc?logoWidth=1" title="钟原：中共政治局为什么突开网络会议  " alt="钟原：中共政治局为什么突开网络会议  "></a></p>
-<p><a href="https://github.com/atmnqo3700/djy/blob/master/gb/20/7/17/n12264148.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/保长江与大城市 安徽泄洪淹多村       >-009fcc?logoWidth=1" title="保长江与大城市 安徽泄洪淹多村  " alt="保长江与大城市 安徽泄洪淹多村  "></a></p>
 <p><a href="https://github.com/atmnqo3700/djy/blob/master/gb/20/7/6/n12236053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/有关习的35,476个敏感词        >-009fcc?logoWidth=1" title="有关习的35,476个敏感词  " alt="有关习的35,476个敏感词  "></a></p>
-<p><a href="https://github.com/atmnqo3700/djy/blob/master/gb/20/7/17/n12264495.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港高官家人资产均在英美 若被制裁恐无一幸免 >-009fcc?logoWidth=1" title="港高官家人资产均在英美 若被制裁恐无一幸免  " alt="港高官家人资产均在英美 若被制裁恐无一幸免  "></a></p>
-<p><a href="https://github.com/atmnqo3700/djy/blob/master/gb/20/7/16/n12261464.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共将遭遇比“十灾”更大的灭顶之灾 >-009fcc?logoWidth=1" title="王友群：中共将遭遇比“十灾”更大的灭顶之灾  " alt="王友群：中共将遭遇比“十灾”更大的灭顶之灾  "></a></p>
+<p><a href="https://github.com/atmnqo3700/djy/blob/master/gb/20/7/17/n12264148.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/保长江与大城市 安徽泄洪淹多村       >-009fcc?logoWidth=1" title="保长江与大城市 安徽泄洪淹多村  " alt="保长江与大城市 安徽泄洪淹多村  "></a></p>
 <p><a href="https://github.com/atmnqo3700/djy/blob/master/gb/20/7/17/n12264447.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美领军世界反共 华人如何自保？       >-009fcc?logoWidth=1" title="美领军世界反共 华人如何自保？  " alt="美领军世界反共 华人如何自保？  "></a></p>
+<p><a href="https://github.com/atmnqo3700/djy/blob/master/gb/20/7/16/n12261464.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共将遭遇比“十灾”更大的灭顶之灾 >-009fcc?logoWidth=1" title="王友群：中共将遭遇比“十灾”更大的灭顶之灾  " alt="王友群：中共将遭遇比“十灾”更大的灭顶之灾  "></a></p>
+<p><a href="https://github.com/atmnqo3700/djy/blob/master/gb/20/7/18/n12264739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：世界强国联手对抗中共威胁      >-009fcc?logoWidth=1" title="蓬佩奥：世界强国联手对抗中共威胁  " alt="蓬佩奥：世界强国联手对抗中共威胁  "></a></p>
 <p><a href="https://github.com/atmnqo3700/djy/blob/master/gb/20/7/17/n12264329.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院记录法轮功受迫害情况        >-009fcc?logoWidth=1" title="美国务院记录法轮功受迫害情况  " alt="美国务院记录法轮功受迫害情况  "></a></p>
 <p><a href="https://github.com/atmnqo3700/djy/blob/master/gb/20/7/17/n12264061.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美“凌迟式”制裁 港亲共高官承认寒蝉效应  >-009fcc?logoWidth=1" title="美“凌迟式”制裁 港亲共高官承认寒蝉效应  " alt="美“凌迟式”制裁 港亲共高官承认寒蝉效应  "></a></p>
 <p><a href="https://github.com/atmnqo3700/djy/blob/master/gb/20/7/17/n12262157.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洛杉矶中国移民眼中的《大纪元时报》     >-009fcc?logoWidth=1" title="洛杉矶中国移民眼中的《大纪元时报》  " alt="洛杉矶中国移民眼中的《大纪元时报》  "></a></p>
 <p><a href="https://github.com/atmnqo3700/djy/blob/master/gb/20/7/18/n12264830.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁 中共内部现恐慌           >-009fcc?logoWidth=1" title="美制裁 中共内部现恐慌  " alt="美制裁 中共内部现恐慌  "></a></p>
-<p><a href="https://github.com/atmnqo3700/djy/blob/master/gb/20/7/18/n12264739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：世界强国联手对抗中共威胁      >-009fcc?logoWidth=1" title="蓬佩奥：世界强国联手对抗中共威胁  " alt="蓬佩奥：世界强国联手对抗中共威胁  "></a></p>
+<p><a href="https://github.com/atmnqo3700/djy/blob/master/gb/20/7/16/n12261367.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前审查员：TikTok信息送中国审查    >-009fcc?logoWidth=1" title="前审查员：TikTok信息送中国审查  " alt="前审查员：TikTok信息送中国审查  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/17/a102896434.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“天灭中共 结束迫害”网络研讨会      >-009fcc?logoWidth=1" title="“天灭中共 结束迫害”网络研讨会  " alt="“天灭中共 结束迫害”网络研讨会  "></a></p>
 <p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/17/a102896178.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/半壁江山泡水 习为何不露面？        >-009fcc?logoWidth=1" title="半壁江山泡水 习为何不露面？  " alt="半壁江山泡水 习为何不露面？  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/atmnqo3700/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/atmnqo3700/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/atmnqo3700/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/atmnqo3700/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/atmnqo3700/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/atmnqo3700/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/atmnqo3700/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/atmnqo3700/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gdddd">git.io/gdddd</a></div>
+<div align="center">短网址: <a href="https://git.io/unnnn">git.io/unnnn</a></div>
 

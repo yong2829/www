@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/awqgth334/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/awqgth334/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cuuuu">git.io/cuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/8pp">x.co/8pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/essss">git.io/essss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pzp">x.co/pzp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,12 +41,13 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/awqgth334/ntdtv/blob/master/gb/2020/07/18/a102896558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前所未见 三峡库位超出警戒水位12米    >-009fcc?logoWidth=1" title="前所未见 三峡库位超出警戒水位12米  " alt="前所未见 三峡库位超出警戒水位12米  "></a></p>
 <p><a href="https://github.com/awqgth334/djy/blob/master/gb/20/7/18/n12264830.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国禁入境？中共内部现恐慌         >-009fcc?logoWidth=1" title="美国禁入境？中共内部现恐慌  " alt="美国禁入境？中共内部现恐慌  "></a></p>
-<p><a href="https://github.com/awqgth334/djy/blob/master/gb/20/7/17/n12262157.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洛杉矶中国移民眼中的《大纪元时报》     >-009fcc?logoWidth=1" title="洛杉矶中国移民眼中的《大纪元时报》  " alt="洛杉矶中国移民眼中的《大纪元时报》  "></a></p>
 <p><a href="https://github.com/awqgth334/ntdtv/blob/master/gb/2020/07/17/a102896281.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传乌鲁木齐全封闭7天 内部通知曝新疆多地爆疫>-009fcc?logoWidth=1" title="传乌鲁木齐全封闭7天 内部通知曝新疆多地爆疫情  " alt="传乌鲁木齐全封闭7天 内部通知曝新疆多地爆疫情  "></a></p>
-<p><a href="https://github.com/awqgth334/djy/blob/master/gb/20/7/17/n12264364.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共声称“丰收” 民众：水泡虫咬还丰收？  >-009fcc?logoWidth=1" title="中共声称“丰收” 民众：水泡虫咬还丰收？  " alt="中共声称“丰收” 民众：水泡虫咬还丰收？  "></a></p>
+<p><a href="https://github.com/awqgth334/djy/blob/master/gb/20/7/6/n12236053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/有关习的35,476个敏感词        >-009fcc?logoWidth=1" title="有关习的35,476个敏感词  " alt="有关习的35,476个敏感词  "></a></p>
+<p><a href="https://github.com/awqgth334/djy/blob/master/gb/20/7/17/n12262157.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洛杉矶中国移民眼中的《大纪元时报》     >-009fcc?logoWidth=1" title="洛杉矶中国移民眼中的《大纪元时报》  " alt="洛杉矶中国移民眼中的《大纪元时报》  "></a></p>
 <p><a href="https://github.com/awqgth334/ntdtv/blob/master/gb/2020/07/17/a102896178.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/半壁江山泡水 习为何不露面？        >-009fcc?logoWidth=1" title="半壁江山泡水 习为何不露面？  " alt="半壁江山泡水 习为何不露面？  "></a></p>
 <p><a href="https://github.com/awqgth334/ntdtv/blob/master/gb/2020/07/18/a102896762.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟禁中共党员及家属入境 党员该怎么办？  >-009fcc?logoWidth=1" title="美拟禁中共党员及家属入境 党员该怎么办？  " alt="美拟禁中共党员及家属入境 党员该怎么办？  "></a></p>
-<p><a href="https://github.com/awqgth334/djy/blob/master/gb/20/7/17/n12264495.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港高官家人资产均在英美 若被制裁恐无一幸免 >-009fcc?logoWidth=1" title="港高官家人资产均在英美 若被制裁恐无一幸免  " alt="港高官家人资产均在英美 若被制裁恐无一幸免  "></a></p>
+<p><a href="https://github.com/awqgth334/djy/blob/master/gb/20/7/17/n12264364.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共声称“丰收” 民众：水泡虫咬还丰收？  >-009fcc?logoWidth=1" title="中共声称“丰收” 民众：水泡虫咬还丰收？  " alt="中共声称“丰收” 民众：水泡虫咬还丰收？  "></a></p>
+<p><a href="https://github.com/awqgth334/djy/blob/master/gb/20/7/18/n12265280.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：中共威胁世界自由 美不会袖手旁观  >-009fcc?logoWidth=1" title="蓬佩奥：中共威胁世界自由 美不会袖手旁观  " alt="蓬佩奥：中共威胁世界自由 美不会袖手旁观  "></a></p>
 <p><a href="https://github.com/awqgth334/ntdtv/blob/master/gb/2020/07/17/a102896426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/1奇穴解除头痛、肩颈痛！每天5分钟“肩颈操＋>-009fcc?logoWidth=1" title="1奇穴解除头痛、肩颈痛！每天5分钟“肩颈操＋1动作”，远离驼背  " alt="1奇穴解除头痛、肩颈痛！每天5分钟“肩颈操＋1动作”，远离驼背  "></a></p>
 <p><a href="https://github.com/awqgth334/ntdtv/blob/master/gb/2020/07/17/a102896150.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传武汉女斧劈市政府门牌 中国网民一片叫好  >-009fcc?logoWidth=1" title="传武汉女斧劈市政府门牌 中国网民一片叫好  " alt="传武汉女斧劈市政府门牌 中国网民一片叫好  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/awqgth334/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/awqgth334/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/awqgth334/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/awqgth334/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/awqgth334/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/awqgth334/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/awqgth334/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/awqgth334/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/awqgth334/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/awqgth334/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/cuuuu">git.io/cuuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/essss">git.io/essss</a></div>
 

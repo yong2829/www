@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/atmnqo3700/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/atmnqo3700/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dssss">git.io/dssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2227">x.co/2227</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mxxxx">git.io/mxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a4a">x.co/a4a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/18/a102896619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/肖建华消失3年多生死不明 旗下9家公司被接管>-009fcc?logoWidth=1" title="肖建华消失3年多生死不明 旗下9家公司被接管  " alt="肖建华消失3年多生死不明 旗下9家公司被接管  "></a></p>
 <p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/18/a102896564.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/媒体研究：法轮功是自媒体24小时点击量最大 >-009fcc?logoWidth=1" title="媒体研究：法轮功是自媒体24小时点击量最大  " alt="媒体研究：法轮功是自媒体24小时点击量最大  "></a></p>
 <p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/18/a102896525.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁名单 韩正林郑邓炳强上榜       >-009fcc?logoWidth=1" title="美制裁名单 韩正林郑邓炳强上榜  " alt="美制裁名单 韩正林郑邓炳强上榜  "></a></p>
 <p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/18/a102896508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国吹响灭共集结号 分析：中共求饶已经晚了！>-009fcc?logoWidth=1" title="美国吹响灭共集结号 分析：中共求饶已经晚了！  " alt="美国吹响灭共集结号 分析：中共求饶已经晚了！  "></a></p>
 <p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/18/a102896485.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7常委真出事了？习召开网络会议引猜测    >-009fcc?logoWidth=1" title="7常委真出事了？习召开网络会议引猜测  " alt="7常委真出事了？习召开网络会议引猜测  "></a></p>
 <p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/17/a102896349.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江2号洪水形成 重庆万州被淹 三峡吃紧  >-009fcc?logoWidth=1" title="长江2号洪水形成 重庆万州被淹 三峡吃紧  " alt="长江2号洪水形成 重庆万州被淹 三峡吃紧  "></a></p>
-<p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/17/a102896281.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传乌鲁木齐全封闭7天 内部通知曝新疆多地爆疫>-009fcc?logoWidth=1" title="传乌鲁木齐全封闭7天 内部通知曝新疆多地爆疫情  " alt="传乌鲁木齐全封闭7天 内部通知曝新疆多地爆疫情  "></a></p>
 <p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/17/a102895729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法轮功七二零反迫害21周年（2020）-- 正>-009fcc?logoWidth=1" title="法轮功七二零反迫害21周年（2020）- 正信永存 善念不息  " alt="法轮功七二零反迫害21周年（2020）- 正信永存 善念不息  "></a></p>
 <p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/18/a102896569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印尼苏拉威西岛暴雨洪灾 河川溃堤至少36死 >-009fcc?logoWidth=1" title="印尼苏拉威西岛暴雨洪灾 河川溃堤至少36死  " alt="印尼苏拉威西岛暴雨洪灾 河川溃堤至少36死  "></a></p>
 <p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/18/a102896558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前所未见 三峡库位超出警戒水位12米    >-009fcc?logoWidth=1" title="前所未见 三峡库位超出警戒水位12米  " alt="前所未见 三峡库位超出警戒水位12米  "></a></p>
@@ -42,12 +42,12 @@
 <p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/17/a102896434.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“天灭中共 结束迫害”网络研讨会      >-009fcc?logoWidth=1" title="“天灭中共 结束迫害”网络研讨会  " alt="“天灭中共 结束迫害”网络研讨会  "></a></p>
 <p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/17/a102896178.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/半壁江山泡水 习为何不露面？        >-009fcc?logoWidth=1" title="半壁江山泡水 习为何不露面？  " alt="半壁江山泡水 习为何不露面？  "></a></p>
 <p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/17/a102896072.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国股市为何暴跌 中共党员禁入美 你怎么办 >-009fcc?logoWidth=1" title="中国股市为何暴跌 中共党员禁入美 你怎么办  " alt="中国股市为何暴跌 中共党员禁入美 你怎么办  "></a></p>
-<p><a href="https://github.com/atmnqo3700/djy/blob/master/gb/20/7/17/n12264161.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/特大暴雨 上游泄洪 湖北恩施大面积被淹   >-009fcc?logoWidth=1" title="特大暴雨 上游泄洪 湖北恩施大面积被淹  " alt="特大暴雨 上游泄洪 湖北恩施大面积被淹  "></a></p>
+<p><a href="https://github.com/atmnqo3700/djy/blob/master/gb/20/7/17/n12264495.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港高官家人资产均在英美 若被制裁恐无一幸免 >-009fcc?logoWidth=1" title="港高官家人资产均在英美 若被制裁恐无一幸免  " alt="港高官家人资产均在英美 若被制裁恐无一幸免  "></a></p>
 <p><a href="https://github.com/atmnqo3700/djy/blob/master/gb/20/7/18/n12264799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：华春莹的“可悲”与胡锡进的“不满”  >-009fcc?logoWidth=1" title="袁斌：华春莹的“可悲”与胡锡进的“不满”  " alt="袁斌：华春莹的“可悲”与胡锡进的“不满”  "></a></p>
 <p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/18/a102896459.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:美“惊涛掌”吊打中共 禁9千万党员入境>-009fcc?logoWidth=1" title="文昭:美“惊涛掌”吊打中共 禁9千万党员入境有办法  " alt="文昭:美“惊涛掌”吊打中共 禁9千万党员入境有办法  "></a></p>
 <p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/17/a102895852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平心里没底了？疑警告党内：要死一起死  >-009fcc?logoWidth=1" title="习近平心里没底了？疑警告党内：要死一起死  " alt="习近平心里没底了？疑警告党内：要死一起死  "></a></p>
+<p><a href="https://github.com/atmnqo3700/djy/blob/master/gb/20/6/9/n12173862.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/格里克：美中都撒钱 有何不同？       >-009fcc?logoWidth=1" title="格里克：美中都撒钱 有何不同？  " alt="格里克：美中都撒钱 有何不同？  "></a></p>
 <p><a href="https://github.com/atmnqo3700/djy/blob/master/gb/20/7/17/n12264364.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共声称“丰收” 民众：水泡虫咬还丰收？  >-009fcc?logoWidth=1" title="中共声称“丰收” 民众：水泡虫咬还丰收？  " alt="中共声称“丰收” 民众：水泡虫咬还丰收？  "></a></p>
-<p><a href="https://github.com/atmnqo3700/djy/blob/master/gb/20/7/16/n12260021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢田：川普重拳反击 中共内部为何恁多想不到 >-009fcc?logoWidth=1" title="谢田：川普重拳反击 中共内部为何恁多想不到  " alt="谢田：川普重拳反击 中共内部为何恁多想不到  "></a></p>
 <p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/17/a102896216.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共专家奇论：美禁党员入境是想“颠覆共产党”>-009fcc?logoWidth=1" title="中共专家奇论：美禁党员入境是想“颠覆共产党”  " alt="中共专家奇论：美禁党员入境是想“颠覆共产党”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/atmnqo3700/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/atmnqo3700/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/atmnqo3700/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/atmnqo3700/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/atmnqo3700/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/atmnqo3700/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/atmnqo3700/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/atmnqo3700/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dssss">git.io/dssss</a></div>
+<div align="center">短网址: <a href="https://git.io/mxxxx">git.io/mxxxx</a></div>
 

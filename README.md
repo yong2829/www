@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/awqgth334/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/awqgth334/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ruuuu">git.io/ruuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/jdd">x.co/jdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nnnnn">git.io/nnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/psp">x.co/psp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,13 +40,13 @@
 <p><a href="https://github.com/awqgth334/djy/blob/master/gb/20/7/18/n12264750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共面临美国“核弹级”制裁     >-009fcc?logoWidth=1" title="王友群：中共面临美国“核弹级”制裁  " alt="王友群：中共面临美国“核弹级”制裁  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/awqgth334/ntdtv/blob/master/gb/2020/07/17/a102896150.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传武汉女斧劈市政府门牌 中国网民一片叫好  >-009fcc?logoWidth=1" title="传武汉女斧劈市政府门牌 中国网民一片叫好  " alt="传武汉女斧劈市政府门牌 中国网民一片叫好  "></a></p>
-<p><a href="https://github.com/awqgth334/djy/blob/master/gb/20/7/18/n12264830.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国禁入境？中共内部现恐慌         >-009fcc?logoWidth=1" title="美国禁入境？中共内部现恐慌  " alt="美国禁入境？中共内部现恐慌  "></a></p>
 <p><a href="https://github.com/awqgth334/ntdtv/blob/master/gb/2020/07/17/a102896281.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传乌鲁木齐全封闭7天 内部通知曝新疆多地爆疫>-009fcc?logoWidth=1" title="传乌鲁木齐全封闭7天 内部通知曝新疆多地爆疫情  " alt="传乌鲁木齐全封闭7天 内部通知曝新疆多地爆疫情  "></a></p>
-<p><a href="https://github.com/awqgth334/djy/blob/master/gb/20/7/18/n12265537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆疫情发展迅速 乌市进入战时状态     >-009fcc?logoWidth=1" title="新疆疫情发展迅速 乌市进入战时状态  " alt="新疆疫情发展迅速 乌市进入战时状态  "></a></p>
 <p><a href="https://github.com/awqgth334/djy/blob/master/gb/20/7/6/n12236053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/有关习的35,476个敏感词        >-009fcc?logoWidth=1" title="有关习的35,476个敏感词  " alt="有关习的35,476个敏感词  "></a></p>
+<p><a href="https://github.com/awqgth334/djy/blob/master/gb/20/7/18/n12265600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：时间已经不多了 世人只有一个选择  >-009fcc?logoWidth=1" title="周晓辉：时间已经不多了 世人只有一个选择  " alt="周晓辉：时间已经不多了 世人只有一个选择  "></a></p>
 <p><a href="https://github.com/awqgth334/ntdtv/blob/master/gb/2020/07/17/a102896178.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/半壁江山泡水 习为何不露面？        >-009fcc?logoWidth=1" title="半壁江山泡水 习为何不露面？  " alt="半壁江山泡水 习为何不露面？  "></a></p>
 <p><a href="https://github.com/awqgth334/ntdtv/blob/master/gb/2020/07/17/a102896426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/1奇穴解除头痛、肩颈痛！每天5分钟“肩颈操＋>-009fcc?logoWidth=1" title="1奇穴解除头痛、肩颈痛！每天5分钟“肩颈操＋1动作”，远离驼背  " alt="1奇穴解除头痛、肩颈痛！每天5分钟“肩颈操＋1动作”，远离驼背  "></a></p>
-<p><a href="https://github.com/awqgth334/djy/blob/master/gb/20/7/17/n12264364.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共声称“丰收” 民众：水泡虫咬还丰收？  >-009fcc?logoWidth=1" title="中共声称“丰收” 民众：水泡虫咬还丰收？  " alt="中共声称“丰收” 民众：水泡虫咬还丰收？  "></a></p>
+<p><a href="https://github.com/awqgth334/djy/blob/master/gb/20/7/18/n12265537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆疫情发展迅速 乌市进入战时状态     >-009fcc?logoWidth=1" title="新疆疫情发展迅速 乌市进入战时状态  " alt="新疆疫情发展迅速 乌市进入战时状态  "></a></p>
+<p><a href="https://github.com/awqgth334/djy/blob/master/gb/20/7/17/n12264447.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美领军世界反共 华人如何自保？       >-009fcc?logoWidth=1" title="美领军世界反共 华人如何自保？  " alt="美领军世界反共 华人如何自保？  "></a></p>
 <p><a href="https://github.com/awqgth334/ntdtv/blob/master/gb/2020/07/18/a102896762.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟禁中共党员及家属入境 党员该怎么办？  >-009fcc?logoWidth=1" title="美拟禁中共党员及家属入境 党员该怎么办？  " alt="美拟禁中共党员及家属入境 党员该怎么办？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/awqgth334/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/awqgth334/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/awqgth334/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/awqgth334/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/awqgth334/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/awqgth334/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/awqgth334/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/awqgth334/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/awqgth334/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/awqgth334/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ruuuu">git.io/ruuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/nnnnn">git.io/nnnnn</a></div>
 

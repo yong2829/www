@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/umfebr302/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/umfebr302/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/innnn">git.io/innnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppk">x.co/ppk</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ppppp">git.io/ppppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/rdd">x.co/rdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -23,8 +23,8 @@
 <p><a href="https://github.com/umfebr302/ntdtv/blob/master/gb/2020/07/17/a102896426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/电脑族 1分钟甩开头痛 肩颈        >-009fcc?logoWidth=1" title="电脑族 1分钟甩开头痛 肩颈  " alt="电脑族 1分钟甩开头痛 肩颈  "></a></p>
 <p><a href="https://github.com/umfebr302/ntdtv/blob/master/gb/2020/07/17/a102896374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被逼签“一中切结书”换签证 台驻港处长被迫返>-009fcc?logoWidth=1" title="被逼签“一中切结书”换签证 台驻港处长被迫返台  " alt="被逼签“一中切结书”换签证 台驻港处长被迫返台  "></a></p>
 <p><a href="https://github.com/umfebr302/ntdtv/blob/master/gb/2020/07/17/a102896349.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江2号洪水形成 重庆万州被淹 三峡吃紧  >-009fcc?logoWidth=1" title="长江2号洪水形成 重庆万州被淹 三峡吃紧  " alt="长江2号洪水形成 重庆万州被淹 三峡吃紧  "></a></p>
+<p><a href="https://github.com/umfebr302/ntdtv/blob/master/gb/2020/07/17/a102896384.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡水库再传警讯 长江2020年第2号洪水形>-009fcc?logoWidth=1" title="三峡水库再传警讯 长江2020年第2号洪水形成  " alt="三峡水库再传警讯 长江2020年第2号洪水形成  "></a></p>
 <p><a href="https://github.com/umfebr302/ntdtv/blob/master/gb/2020/07/15/a102894066.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新唐人专题系列片预告：魔鬼在统治着我们的世界>-009fcc?logoWidth=1" title="新唐人专题系列片预告：魔鬼在统治着我们的世界  " alt="新唐人专题系列片预告：魔鬼在统治着我们的世界  "></a></p>
-<p><a href="https://github.com/umfebr302/ntdtv/blob/master/gb/2020/07/17/a102896305.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/防政变？北戴河会前北京卫戍区司令员换人   >-009fcc?logoWidth=1" title="防政变？北戴河会前北京卫戍区司令员换人  " alt="防政变？北戴河会前北京卫戍区司令员换人  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/umfebr302/djy/blob/master/gb/20/7/17/n12263801.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共党员及家属或被美限入境 内部掀恐慌   >-009fcc?logoWidth=1" title="中共党员及家属或被美限入境 内部掀恐慌  " alt="中共党员及家属或被美限入境 内部掀恐慌  "></a></p>
 <p><a href="https://github.com/umfebr302/djy/blob/master/gb/20/7/17/n12264148.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/保长江与大城市 安徽泄洪淹多村       >-009fcc?logoWidth=1" title="保长江与大城市 安徽泄洪淹多村  " alt="保长江与大城市 安徽泄洪淹多村  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/umfebr302/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/umfebr302/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/umfebr302/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/umfebr302/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/umfebr302/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/umfebr302/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/umfebr302/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/umfebr302/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/umfebr302/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/umfebr302/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/innnn">git.io/innnn</a></div>
+<div align="center">短网址: <a href="https://git.io/ppppp">git.io/ppppp</a></div>
 

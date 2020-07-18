@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/atmnqo3700/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/atmnqo3700/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/22222222">git.io/22222222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3377">x.co/3377</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ihhhh">git.io/ihhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppf">x.co/ppf</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/18/a102896660.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美禁中共党员全家 如何豁免         >-009fcc?logoWidth=1" title="美禁中共党员全家 如何豁免  " alt="美禁中共党员全家 如何豁免  "></a></p>
 <p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/18/a102896619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/肖建华消失3年多生死不明 旗下9家公司被接管>-009fcc?logoWidth=1" title="肖建华消失3年多生死不明 旗下9家公司被接管  " alt="肖建华消失3年多生死不明 旗下9家公司被接管  "></a></p>
 <p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/18/a102896564.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/媒体研究：法轮功系自媒体24小时点击量最大 >-009fcc?logoWidth=1" title="媒体研究：法轮功系自媒体24小时点击量最大  " alt="媒体研究：法轮功系自媒体24小时点击量最大  "></a></p>
 <p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/18/a102896525.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁名单 韩正林郑邓炳强上榜       >-009fcc?logoWidth=1" title="美制裁名单 韩正林郑邓炳强上榜  " alt="美制裁名单 韩正林郑邓炳强上榜  "></a></p>
 <p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/18/a102896508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国吹响灭共集结号 分析：中共求饶已经晚了！>-009fcc?logoWidth=1" title="美国吹响灭共集结号 分析：中共求饶已经晚了！  " alt="美国吹响灭共集结号 分析：中共求饶已经晚了！  "></a></p>
 <p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/18/a102896485.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7常委真出事了？习召开网络会议引猜测    >-009fcc?logoWidth=1" title="7常委真出事了？习召开网络会议引猜测  " alt="7常委真出事了？习召开网络会议引猜测  "></a></p>
-<p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/17/a102896349.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江2号洪水形成 重庆万州被淹 三峡吃紧  >-009fcc?logoWidth=1" title="长江2号洪水形成 重庆万州被淹 三峡吃紧  " alt="长江2号洪水形成 重庆万州被淹 三峡吃紧  "></a></p>
 <p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/18/a102896636.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普亲信：美中一旦开战 中共立马崩溃    >-009fcc?logoWidth=1" title="川普亲信：美中一旦开战 中共立马崩溃  " alt="川普亲信：美中一旦开战 中共立马崩溃  "></a></p>
 <p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/18/a102896629.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美双航母打击群重返南海 震慑中共力度不减  >-009fcc?logoWidth=1" title="美双航母打击群重返南海 震慑中共力度不减  " alt="美双航母打击群重返南海 震慑中共力度不减  "></a></p>
 <p><a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/2020/07/17/a102895729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法轮功七二零反迫害21周年（2020）-- 正>-009fcc?logoWidth=1" title="法轮功七二零反迫害21周年（2020）- 正信永存 善念不息  " alt="法轮功七二零反迫害21周年（2020）- 正信永存 善念不息  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/atmnqo3700/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/atmnqo3700/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/atmnqo3700/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/atmnqo3700/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/atmnqo3700/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/atmnqo3700/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/atmnqo3700/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/atmnqo3700/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/atmnqo3700/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/22222222">git.io/22222222</a></div>
+<div align="center">短网址: <a href="https://git.io/ihhhh">git.io/ihhhh</a></div>
 

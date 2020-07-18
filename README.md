@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/awqgth334/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/awqgth334/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mssss">git.io/mssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3337">x.co/3337</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c6666">git.io/c6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/daa">x.co/daa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/awqgth334/ntdtv/blob/master/gb/2020/07/18/a102896660.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美禁中共党员全家 如何豁免         >-009fcc?logoWidth=1" title="美禁中共党员全家 如何豁免  " alt="美禁中共党员全家 如何豁免  "></a></p>
 <p><a href="https://github.com/awqgth334/ntdtv/blob/master/gb/2020/07/18/a102896619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/肖建华消失3年多生死不明 旗下9家公司被接管>-009fcc?logoWidth=1" title="肖建华消失3年多生死不明 旗下9家公司被接管  " alt="肖建华消失3年多生死不明 旗下9家公司被接管  "></a></p>
 <p><a href="https://github.com/awqgth334/ntdtv/blob/master/gb/2020/07/18/a102896525.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁名单 韩正林郑邓炳强上榜       >-009fcc?logoWidth=1" title="美制裁名单 韩正林郑邓炳强上榜  " alt="美制裁名单 韩正林郑邓炳强上榜  "></a></p>
+<p><a href="https://github.com/awqgth334/ntdtv/blob/master/gb/2020/07/18/a102897013.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/淮河发布第1号洪水 安徽金寨被淹水深2米  >-009fcc?logoWidth=1" title="淮河发布第1号洪水 安徽金寨被淹水深2米  " alt="淮河发布第1号洪水 安徽金寨被淹水深2米  "></a></p>
 <p><a href="https://github.com/awqgth334/ntdtv/blob/master/gb/2020/07/18/a102896969.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川男勇救落水童 社区书记抢功网友怒骂无耻（视>-009fcc?logoWidth=1" title="川男勇救落水童 社区书记抢功网友怒骂无耻（视频）  " alt="川男勇救落水童 社区书记抢功网友怒骂无耻（视频）  "></a></p>
 <p><a href="https://github.com/awqgth334/ntdtv/blob/master/gb/2020/07/18/a102896959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅又变脸 与俄通话大骂美国        >-009fcc?logoWidth=1" title="王毅又变脸 与俄通话大骂美国  " alt="王毅又变脸 与俄通话大骂美国  "></a></p>
 <p><a href="https://github.com/awqgth334/ntdtv/blob/master/gb/2020/07/18/a102896916.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球疫情4天增百万 香港感染数超萨斯    >-009fcc?logoWidth=1" title="全球疫情4天增百万 香港感染数超萨斯  " alt="全球疫情4天增百万 香港感染数超萨斯  "></a></p>
 <p><a href="https://github.com/awqgth334/ntdtv/blob/master/gb/2020/07/18/a102896884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民运人士认清中共邪恶 退出共产党组织    >-009fcc?logoWidth=1" title="民运人士认清中共邪恶 退出共产党组织  " alt="民运人士认清中共邪恶 退出共产党组织  "></a></p>
-<p><a href="https://github.com/awqgth334/ntdtv/blob/master/gb/2020/07/18/a102896888.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/旧金山法轮功谴责中共疫情下迫害仍持续    >-009fcc?logoWidth=1" title="旧金山法轮功谴责中共疫情下迫害仍持续  " alt="旧金山法轮功谴责中共疫情下迫害仍持续  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/awqgth334/djy/blob/master/gb/20/7/18/n12265847.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江2号洪水来袭 官媒承认三峡大坝位移变形 >-009fcc?logoWidth=1" title="长江2号洪水来袭 官媒承认三峡大坝位移变形  " alt="长江2号洪水来袭 官媒承认三峡大坝位移变形  "></a></p>
 <p><a href="https://github.com/awqgth334/djy/blob/master/gb/20/7/17/n12264288.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代：赚钱的行业都垄断 你老百姓有选择吗 >-009fcc?logoWidth=1" title="红二代：赚钱的行业都垄断 你老百姓有选择吗  " alt="红二代：赚钱的行业都垄断 你老百姓有选择吗  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/awqgth334/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/awqgth334/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/awqgth334/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/awqgth334/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/awqgth334/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/awqgth334/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/awqgth334/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/awqgth334/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/awqgth334/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/awqgth334/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mssss">git.io/mssss</a></div>
+<div align="center">短网址: <a href="https://git.io/c6666">git.io/c6666</a></div>
 

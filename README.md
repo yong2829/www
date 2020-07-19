@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xqeisj344/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xqeisj344/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tnnnn">git.io/tnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/fdd">x.co/fdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d6666">git.io/d6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3337">x.co/3337</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/19/a102897246.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡超警戒水位19米仍在涨 党媒自曝大坝位移>-009fcc?logoWidth=1" title="三峡超警戒水位19米仍在涨 党媒自曝大坝位移变形  " alt="三峡超警戒水位19米仍在涨 党媒自曝大坝位移变形  "></a></p>
 <p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/19/a102897208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“就要就要死”来的太快 川普一招掀中国退党大>-009fcc?logoWidth=1" title="“就要就要死”来的太快 川普一招掀中国退党大潮  " alt="“就要就要死”来的太快 川普一招掀中国退党大潮  "></a></p>
 <p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/18/a102897131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒泄自武汉实验室？美国务院公布电文    >-009fcc?logoWidth=1" title="病毒泄自武汉实验室？美国务院公布电文  " alt="病毒泄自武汉实验室？美国务院公布电文  "></a></p>
+<p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/19/a102897488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普宣布介入波特兰事件 抨击民主党人摧毁国家>-009fcc?logoWidth=1" title="川普宣布介入波特兰事件 抨击民主党人摧毁国家  " alt="川普宣布介入波特兰事件 抨击民主党人摧毁国家  "></a></p>
+<p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/19/a102897474.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民主党副总统人选 拜登选谁压力大      >-009fcc?logoWidth=1" title="民主党副总统人选 拜登选谁压力大  " alt="民主党副总统人选 拜登选谁压力大  "></a></p>
+<p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/19/a102897472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法国南特主教座堂被纵火 一难民被捕     >-009fcc?logoWidth=1" title="法国南特主教座堂被纵火 一难民被捕  " alt="法国南特主教座堂被纵火 一难民被捕  "></a></p>
 <p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/12/a102892257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪灾使习陷困局 不愿“亲自指挥”？     >-009fcc?logoWidth=1" title="洪灾使习陷困局 不愿“亲自指挥”？  " alt="洪灾使习陷困局 不愿“亲自指挥”？  "></a></p>
 <p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/19/a102897364.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本政府斥700亿日圆 助民企撤出中国   >-009fcc?logoWidth=1" title="日本政府斥700亿日圆 助民企撤出中国  " alt="日本政府斥700亿日圆 助民企撤出中国  "></a></p>
-<p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/19/a102897359.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/毕业恐失业 泰国学生率领群众示威      >-009fcc?logoWidth=1" title="毕业恐失业 泰国学生率领群众示威  " alt="毕业恐失业 泰国学生率领群众示威  "></a></p>
-<p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/19/a102897348.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大冰河观光巴士滚落斜坡 3死多人轻重伤 >-009fcc?logoWidth=1" title="加拿大冰河观光巴士滚落斜坡 3死多人轻重伤  " alt="加拿大冰河观光巴士滚落斜坡 3死多人轻重伤  "></a></p>
-<p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/19/a102897340.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为救妹6岁男童被狗咬致毁容 美国队长送盾牌鼓>-009fcc?logoWidth=1" title="为救妹6岁男童被狗咬致毁容 美国队长送盾牌鼓励  " alt="为救妹6岁男童被狗咬致毁容 美国队长送盾牌鼓励  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xqeisj344/djy/blob/master/gb/20/7/18/n12265847.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江2号洪水来袭 官媒承认三峡大坝位移变形 >-009fcc?logoWidth=1" title="长江2号洪水来袭 官媒承认三峡大坝位移变形  " alt="长江2号洪水来袭 官媒承认三峡大坝位移变形  "></a></p>
 <p><a href="https://github.com/xqeisj344/djy/blob/master/gb/20/7/17/n12264288.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代：赚钱的行业都垄断 老百姓有选择吗  >-009fcc?logoWidth=1" title="红二代：赚钱的行业都垄断 老百姓有选择吗  " alt="红二代：赚钱的行业都垄断 老百姓有选择吗  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xqeisj344/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xqeisj344/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xqeisj344/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xqeisj344/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xqeisj344/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xqeisj344/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xqeisj344/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xqeisj344/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/tnnnn">git.io/tnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/d6666">git.io/d6666</a></div>
 

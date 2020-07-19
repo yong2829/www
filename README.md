@@ -10,11 +10,11 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xqeisj344/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xqeisj344/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/caaaa">git.io/caaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/zpp">x.co/zpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ixxxx">git.io/ixxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aya">x.co/aya</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/18/a102896782.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7常委开网络会议 党媒再帮习近平“甩锅”  >-009fcc?logoWidth=1" title="7常委开网络会议 党媒再帮习近平“甩锅”  " alt="7常委开网络会议 党媒再帮习近平“甩锅”  "></a></p>
+<p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/18/a102896782.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海高层开会 党媒再帮习近平“甩锅”   >-009fcc?logoWidth=1" title="中南海高层开会 党媒再帮习近平“甩锅”  " alt="中南海高层开会 党媒再帮习近平“甩锅”  "></a></p>
 <p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/18/a102896713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美“凌迟式”制裁 中港官场人心惶惶     >-009fcc?logoWidth=1" title="美“凌迟式”制裁 中港官场人心惶惶  " alt="美“凌迟式”制裁 中港官场人心惶惶  "></a></p>
 <p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/18/a102896727.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7常委真出事？/美吹响灭共集结号      >-009fcc?logoWidth=1" title="7常委真出事？/美吹响灭共集结号  " alt="7常委真出事？/美吹响灭共集结号  "></a></p>
 <p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/18/a102896660.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美禁中共党员全家 如何豁免         >-009fcc?logoWidth=1" title="美禁中共党员全家 如何豁免  " alt="美禁中共党员全家 如何豁免  "></a></p>
@@ -40,6 +40,7 @@
 <p><a href="https://github.com/xqeisj344/djy/blob/master/gb/20/7/17/n12264617.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共政治局为什么突开网络会议     >-009fcc?logoWidth=1" title="钟原：中共政治局为什么突开网络会议  " alt="钟原：中共政治局为什么突开网络会议  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/18/a102896760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伊朗总统自爆料 境内2500万人染疫    >-009fcc?logoWidth=1" title="伊朗总统自爆料 境内2500万人染疫  " alt="伊朗总统自爆料 境内2500万人染疫  "></a></p>
+<p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/18/a102896782.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7常委开网络会议 党媒再帮习近平“甩锅”  >-009fcc?logoWidth=1" title="7常委开网络会议 党媒再帮习近平“甩锅”  " alt="7常委开网络会议 党媒再帮习近平“甩锅”  "></a></p>
 <p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/18/a102896508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国吹响灭共集结号 分析：中共求饶已经晚了！>-009fcc?logoWidth=1" title="美国吹响灭共集结号 分析：中共求饶已经晚了！  " alt="美国吹响灭共集结号 分析：中共求饶已经晚了！  "></a></p>
 <p><a href="https://github.com/xqeisj344/djy/blob/master/gb/20/7/18/n12265164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约华裔投资顾问遭拘捕 被控诈骗1亿美元  >-009fcc?logoWidth=1" title="纽约华裔投资顾问遭拘捕 被控诈骗1亿美元  " alt="纽约华裔投资顾问遭拘捕 被控诈骗1亿美元  "></a></p>
 <p><a href="https://github.com/xqeisj344/djy/blob/master/gb/20/7/18/n12265881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆洪灾严峻 习近平不愿“亲自指挥”？   >-009fcc?logoWidth=1" title="大陆洪灾严峻 习近平不愿“亲自指挥”？  " alt="大陆洪灾严峻 习近平不愿“亲自指挥”？  "></a></p>
@@ -485,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xqeisj344/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xqeisj344/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xqeisj344/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xqeisj344/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xqeisj344/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xqeisj344/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xqeisj344/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xqeisj344/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/caaaa">git.io/caaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/ixxxx">git.io/ixxxx</a></div>
 

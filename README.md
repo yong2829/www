@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xqeisj344/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xqeisj344/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jkkkk">git.io/jkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a8a">x.co/a8a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pcccc">git.io/pcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/byy">x.co/byy</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/18/a102896525.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁名单 韩正林郑邓炳强上榜       >-009fcc?logoWidth=1" title="美制裁名单 韩正林郑邓炳强上榜  " alt="美制裁名单 韩正林郑邓炳强上榜  "></a></p>
 <p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/18/a102897086.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港民主派初选成功 中共出阴招抓捕热门候选人>-009fcc?logoWidth=1" title="香港民主派初选成功 中共出阴招抓捕热门候选人  " alt="香港民主派初选成功 中共出阴招抓捕热门候选人  "></a></p>
 <p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/18/a102897111.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法轮功学员720反迫害21年 在全球和平理性>-009fcc?logoWidth=1" title="法轮功学员720反迫害21年 在全球和平理性讲真相  " alt="法轮功学员720反迫害21年 在全球和平理性讲真相  "></a></p>
-<p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/18/a102897094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反迫害21周年 纽约法轮功学员烛光夜悼   >-009fcc?logoWidth=1" title="反迫害21周年 纽约法轮功学员烛光夜悼  " alt="反迫害21周年 纽约法轮功学员烛光夜悼  "></a></p>
 <p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/18/a102897067.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯顿中国城陷中共病毒高感染区       >-009fcc?logoWidth=1" title="休斯顿中国城陷中共病毒高感染区  " alt="休斯顿中国城陷中共病毒高感染区  "></a></p>
 <p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/18/a102897013.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/淮河发布第1号洪水 安徽金寨被淹水深2米  >-009fcc?logoWidth=1" title="淮河发布第1号洪水 安徽金寨被淹水深2米  " alt="淮河发布第1号洪水 安徽金寨被淹水深2米  "></a></p>
+<p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/18/a102897039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普竞选团队促签请愿书 禁止TikTok  >-009fcc?logoWidth=1" title="川普竞选团队促签请愿书 禁止TikTok  " alt="川普竞选团队促签请愿书 禁止TikTok  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xqeisj344/djy/blob/master/gb/20/7/18/n12265847.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江2号洪水来袭 官媒承认三峡大坝位移变形 >-009fcc?logoWidth=1" title="长江2号洪水来袭 官媒承认三峡大坝位移变形  " alt="长江2号洪水来袭 官媒承认三峡大坝位移变形  "></a></p>
 <p><a href="https://github.com/xqeisj344/djy/blob/master/gb/20/7/17/n12264288.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代：赚钱的行业都垄断 你老百姓有选择吗 >-009fcc?logoWidth=1" title="红二代：赚钱的行业都垄断 你老百姓有选择吗  " alt="红二代：赚钱的行业都垄断 你老百姓有选择吗  "></a></p>
@@ -32,22 +32,22 @@
 <p><a href="https://github.com/xqeisj344/djy/blob/master/gb/20/7/18/n12265794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/染疫几天增10倍 乌市大排查        >-009fcc?logoWidth=1" title="染疫几天增10倍 乌市大排查  " alt="染疫几天增10倍 乌市大排查  "></a></p>
 <p><a href="https://github.com/xqeisj344/djy/blob/master/gb/20/7/18/n12265744.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美禁中共党员入境？华人如何避免       >-009fcc?logoWidth=1" title="美禁中共党员入境？华人如何避免  " alt="美禁中共党员入境？华人如何避免  "></a></p>
 <p><a href="https://github.com/xqeisj344/djy/blob/master/gb/20/7/16/n12261464.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共将遭遇比“十灾”更大的灭顶之灾 >-009fcc?logoWidth=1" title="王友群：中共将遭遇比“十灾”更大的灭顶之灾  " alt="王友群：中共将遭遇比“十灾”更大的灭顶之灾  "></a></p>
-<p><a href="https://github.com/xqeisj344/djy/blob/master/gb/20/7/18/n12265261.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唯一逃离大陆的长春插播参与者：推倒防火墙  >-009fcc?logoWidth=1" title="唯一逃离大陆的长春插播参与者：推倒防火墙  " alt="唯一逃离大陆的长春插播参与者：推倒防火墙  "></a></p>
+<p><a href="https://github.com/xqeisj344/djy/blob/master/gb/20/7/18/n12266261.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润教授被开除 清华红头文件曝光     >-009fcc?logoWidth=1" title="许章润教授被开除 清华红头文件曝光  " alt="许章润教授被开除 清华红头文件曝光  "></a></p>
 <p><a href="https://github.com/xqeisj344/djy/blob/master/gb/20/7/17/n12264329.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院记录法轮功受迫害情况        >-009fcc?logoWidth=1" title="美国务院记录法轮功受迫害情况  " alt="美国务院记录法轮功受迫害情况  "></a></p>
+<p><a href="https://github.com/xqeisj344/djy/blob/master/gb/20/7/18/n12266257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：中共何时爆发政变？          >-009fcc?logoWidth=1" title="王赫：中共何时爆发政变？  " alt="王赫：中共何时爆发政变？  "></a></p>
+<p><a href="https://github.com/xqeisj344/djy/blob/master/gb/20/7/18/n12265261.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唯一逃离大陆的长春插播参与者：推倒防火墙  >-009fcc?logoWidth=1" title="唯一逃离大陆的长春插播参与者：推倒防火墙  " alt="唯一逃离大陆的长春插播参与者：推倒防火墙  "></a></p>
 <p><a href="https://github.com/xqeisj344/djy/blob/master/gb/20/7/18/n12265081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡水量暴增 中科院百人出走        >-009fcc?logoWidth=1" title="三峡水量暴增 中科院百人出走  " alt="三峡水量暴增 中科院百人出走  "></a></p>
 <p><a href="https://github.com/xqeisj344/djy/blob/master/gb/20/7/18/n12265806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德情报机构警告：不要用微信支付和支付宝   >-009fcc?logoWidth=1" title="德情报机构警告：不要用微信支付和支付宝  " alt="德情报机构警告：不要用微信支付和支付宝  "></a></p>
-<p><a href="https://github.com/xqeisj344/djy/blob/master/gb/20/7/18/n12265600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：时间已经不多了 世人只有一个选择  >-009fcc?logoWidth=1" title="周晓辉：时间已经不多了 世人只有一个选择  " alt="周晓辉：时间已经不多了 世人只有一个选择  "></a></p>
-<p><a href="https://github.com/xqeisj344/djy/blob/master/gb/20/7/17/n12264617.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共政治局为什么突开网络会议     >-009fcc?logoWidth=1" title="钟原：中共政治局为什么突开网络会议  " alt="钟原：中共政治局为什么突开网络会议  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/18/a102897025.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/让华为提前两年出局！英重量级议员发话    >-009fcc?logoWidth=1" title="让华为提前两年出局！英重量级议员发话  " alt="让华为提前两年出局！英重量级议员发话  "></a></p>
+<p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/18/a102897027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情未查到源头 乌鲁木齐启动“战时状态”  >-009fcc?logoWidth=1" title="疫情未查到源头 乌鲁木齐启动“战时状态”  " alt="疫情未查到源头 乌鲁木齐启动“战时状态”  "></a></p>
 <p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/18/a102896636.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普亲信：美中一旦开战 中共军队立马崩溃  >-009fcc?logoWidth=1" title="川普亲信：美中一旦开战 中共军队立马崩溃  " alt="川普亲信：美中一旦开战 中共军队立马崩溃  "></a></p>
+<p><a href="https://github.com/xqeisj344/djy/blob/master/gb/20/7/18/n12266030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河南洛阳拆迁队半夜进村 棍棒高压水枪开路  >-009fcc?logoWidth=1" title="河南洛阳拆迁队半夜进村 棍棒高压水枪开路  " alt="河南洛阳拆迁队半夜进村 棍棒高压水枪开路  "></a></p>
+<p><a href="https://github.com/xqeisj344/djy/blob/master/gb/20/7/18/n12265600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：时间已经不多了 世人只有一个选择  >-009fcc?logoWidth=1" title="周晓辉：时间已经不多了 世人只有一个选择  " alt="周晓辉：时间已经不多了 世人只有一个选择  "></a></p>
 <p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/18/a102897137.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/尚未实现的2020预言二 饥荒何时出现(17>-009fcc?logoWidth=1" title="尚未实现的2020预言二 饥荒何时出现(17集）  " alt="尚未实现的2020预言二 饥荒何时出现(17集）  "></a></p>
+<p><a href="https://github.com/xqeisj344/djy/blob/master/gb/20/7/17/n12264617.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共政治局为什么突开网络会议     >-009fcc?logoWidth=1" title="钟原：中共政治局为什么突开网络会议  " alt="钟原：中共政治局为什么突开网络会议  "></a></p>
 <p><a href="https://github.com/xqeisj344/djy/blob/master/gb/20/7/18/n12265164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约华裔投资顾问遭拘捕 被控诈骗1亿美元  >-009fcc?logoWidth=1" title="纽约华裔投资顾问遭拘捕 被控诈骗1亿美元  " alt="纽约华裔投资顾问遭拘捕 被控诈骗1亿美元  "></a></p>
-<p><a href="https://github.com/xqeisj344/djy/blob/master/gb/20/7/18/n12265881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆洪灾严峻 习近平不愿“亲自指挥”？   >-009fcc?logoWidth=1" title="大陆洪灾严峻 习近平不愿“亲自指挥”？  " alt="大陆洪灾严峻 习近平不愿“亲自指挥”？  "></a></p>
 <p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/18/a102896624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南海生变 谁打响第一枪           >-009fcc?logoWidth=1" title="南海生变 谁打响第一枪  " alt="南海生变 谁打响第一枪  "></a></p>
-<p><a href="https://github.com/xqeisj344/djy/blob/master/gb/20/7/18/n12264799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：华春莹的“可悲”与胡锡进的“不满”  >-009fcc?logoWidth=1" title="袁斌：华春莹的“可悲”与胡锡进的“不满”  " alt="袁斌：华春莹的“可悲”与胡锡进的“不满”  "></a></p>
-<p><a href="https://github.com/xqeisj344/djy/blob/master/gb/20/7/16/n12261367.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前审查员：TikTok信息送中国审查    >-009fcc?logoWidth=1" title="前审查员：TikTok信息送中国审查  " alt="前审查员：TikTok信息送中国审查  "></a></p>
-<p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/18/a102896558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前所未见 三峡库位超出警戒水位12米    >-009fcc?logoWidth=1" title="前所未见 三峡库位超出警戒水位12米  " alt="前所未见 三峡库位超出警戒水位12米  "></a></p>
-<p><a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/2020/07/18/a102896760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伊朗总统自爆料 境内2500万人染疫    >-009fcc?logoWidth=1" title="伊朗总统自爆料 境内2500万人染疫  " alt="伊朗总统自爆料 境内2500万人染疫  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xqeisj344/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xqeisj344/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xqeisj344/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xqeisj344/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xqeisj344/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xqeisj344/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xqeisj344/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xqeisj344/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xqeisj344/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jkkkk">git.io/jkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/pcccc">git.io/pcccc</a></div>
 

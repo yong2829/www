@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/iqhfjd310/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/iqhfjd310/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qyyyy">git.io/qyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/apa">x.co/apa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cffff">git.io/cffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3888">x.co/3888</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,17 +39,14 @@
 <p><a href="https://github.com/iqhfjd310/djy/blob/master/gb/20/7/20/n12269196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度人华府中领馆前抗议 “打倒中国共产党” >-009fcc?logoWidth=1" title="印度人华府中领馆前抗议 “打倒中国共产党”  " alt="印度人华府中领馆前抗议 “打倒中国共产党”  "></a></p>
 <p><a href="https://github.com/iqhfjd310/djy/blob/master/gb/20/7/20/n12269232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/受黑客攻击 甘肃检察机关网上笔试被迫中止  >-009fcc?logoWidth=1" title="受黑客攻击 甘肃检察机关网上笔试被迫中止  " alt="受黑客攻击 甘肃检察机关网上笔试被迫中止  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/iqhfjd310/ntdtv/blob/master/gb/2020/07/20/a102897600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江淮河太湖洪灾警报全拉响！官方：听天由命了>-009fcc?logoWidth=1" title="长江淮河太湖洪灾警报全拉响！官方：听天由命了  " alt="长江淮河太湖洪灾警报全拉响！官方：听天由命了  "></a></p>
 <p><a href="https://github.com/iqhfjd310/djy/blob/master/gb/20/7/19/n12267819.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美外交电报曝光 指武汉病毒研究有安全疏漏  >-009fcc?logoWidth=1" title="美外交电报曝光 指武汉病毒研究有安全疏漏  " alt="美外交电报曝光 指武汉病毒研究有安全疏漏  "></a></p>
-<p><a href="https://github.com/iqhfjd310/djy/blob/master/gb/20/7/19/n12266809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江支流水位逼近历史最高 安徽急炸坝泄洪  >-009fcc?logoWidth=1" title="长江支流水位逼近历史最高 安徽急炸坝泄洪  " alt="长江支流水位逼近历史最高 安徽急炸坝泄洪  "></a></p>
-<p><a href="https://github.com/iqhfjd310/djy/blob/master/gb/20/7/19/n12267969.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《国安法》阴霾下 法轮功在香港处境成关注目标>-009fcc?logoWidth=1" title="《国安法》阴霾下 法轮功在香港处境成关注目标  " alt="《国安法》阴霾下 法轮功在香港处境成关注目标  "></a></p>
-<p><a href="https://github.com/iqhfjd310/djy/blob/master/gb/20/7/19/n12267642.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆影院复工：一张票挣1毛 业者观众冷淡  >-009fcc?logoWidth=1" title="大陆影院复工：一张票挣1毛 业者观众冷淡  " alt="大陆影院复工：一张票挣1毛 业者观众冷淡  "></a></p>
-<p><a href="https://github.com/iqhfjd310/djy/blob/master/gb/20/7/19/n12267808.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/跳水世界冠军劳丽诗遭微博封号一年      >-009fcc?logoWidth=1" title="跳水世界冠军劳丽诗遭微博封号一年  " alt="跳水世界冠军劳丽诗遭微博封号一年  "></a></p>
+<p><a href="https://github.com/iqhfjd310/djy/blob/master/gb/20/7/19/n12266687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：制止最大人权犯罪 拯救人类道德文明  >-009fcc?logoWidth=1" title="田云：制止最大人权犯罪 拯救人类道德文明  " alt="田云：制止最大人权犯罪 拯救人类道德文明  "></a></p>
 <p><a href="https://github.com/iqhfjd310/ntdtv/blob/master/gb/2020/07/20/a102897580.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华盛顿市长与孔子学院合作 批准其进入美政府设>-009fcc?logoWidth=1" title="华盛顿市长与孔子学院合作 批准其进入美政府设施  " alt="华盛顿市长与孔子学院合作 批准其进入美政府设施  "></a></p>
+<p><a href="https://github.com/iqhfjd310/djy/blob/master/gb/20/7/19/n12266809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江支流水位逼近历史最高 安徽急炸坝泄洪  >-009fcc?logoWidth=1" title="长江支流水位逼近历史最高 安徽急炸坝泄洪  " alt="长江支流水位逼近历史最高 安徽急炸坝泄洪  "></a></p>
+<p><a href="https://github.com/iqhfjd310/djy/blob/master/gb/20/7/19/n12267642.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆影院复工：一张票挣1毛 业者观众冷淡  >-009fcc?logoWidth=1" title="大陆影院复工：一张票挣1毛 业者观众冷淡  " alt="大陆影院复工：一张票挣1毛 业者观众冷淡  "></a></p>
 <p><a href="https://github.com/iqhfjd310/ntdtv/blob/master/gb/2020/07/19/a102897374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刘伯温预言《金陵塔碑文》最新解读！三峡大坝断>-009fcc?logoWidth=1" title="刘伯温预言《金陵塔碑文》最新解读！三峡大坝断龙脉，2020年大洪水爆发？【地球旅馆】  " alt="刘伯温预言《金陵塔碑文》最新解读！三峡大坝断龙脉，2020年大洪水爆发？【地球旅馆】  "></a></p>
-<p><a href="https://github.com/iqhfjd310/djy/blob/master/gb/20/7/19/n12267484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润获释后首发声：极权必败 官员只待弃舟 >-009fcc?logoWidth=1" title="许章润获释后首发声：极权必败 官员只待弃舟  " alt="许章润获释后首发声：极权必败 官员只待弃舟  "></a></p>
-<p><a href="https://github.com/iqhfjd310/djy/blob/master/gb/20/7/19/n12266965.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝水位暴涨加大泄洪 洞庭湖压力再增  >-009fcc?logoWidth=1" title="三峡大坝水位暴涨加大泄洪 洞庭湖压力再增  " alt="三峡大坝水位暴涨加大泄洪 洞庭湖压力再增  "></a></p>
 <p><a href="https://github.com/iqhfjd310/ntdtv/blob/master/gb/2020/07/18/a102897131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒泄自武汉实验室？美国务院公布电文    >-009fcc?logoWidth=1" title="病毒泄自武汉实验室？美国务院公布电文  " alt="病毒泄自武汉实验室？美国务院公布电文  "></a></p>
-<p><a href="https://github.com/iqhfjd310/ntdtv/blob/master/gb/2020/07/20/a102897691.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/直播问答：官媒承认三峡大坝位移、形变！防汛进>-009fcc?logoWidth=1" title="直播问答：官媒承认三峡大坝位移、形变！防汛进入“七下八上”更严峻  " alt="直播问答：官媒承认三峡大坝位移、形变！防汛进入“七下八上”更严峻  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/iqhfjd310/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/iqhfjd310/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/iqhfjd310/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/iqhfjd310/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/iqhfjd310/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/iqhfjd310/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/iqhfjd310/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/iqhfjd310/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/iqhfjd310/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/iqhfjd310/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qyyyy">git.io/qyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/cffff">git.io/cffff</a></div>
 

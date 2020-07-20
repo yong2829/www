@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tlrwgy3357/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tlrwgy3357/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/99999999">git.io/99999999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u88">x.co/u88</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ehhhh">git.io/ehhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/jpp">x.co/jpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,17 @@
 <p><a href="https://github.com/tlrwgy3357/djy/blob/master/gb/20/7/20/n12269196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度人华府中领馆前抗议 “打倒中国共产党” >-009fcc?logoWidth=1" title="印度人华府中领馆前抗议 “打倒中国共产党”  " alt="印度人华府中领馆前抗议 “打倒中国共产党”  "></a></p>
 <p><a href="https://github.com/tlrwgy3357/djy/blob/master/gb/20/7/20/n12269232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/受黑客攻击 甘肃检察机关网上笔试被迫中止  >-009fcc?logoWidth=1" title="受黑客攻击 甘肃检察机关网上笔试被迫中止  " alt="受黑客攻击 甘肃检察机关网上笔试被迫中止  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江淮河太湖洪灾警报全拉响！官方：听天由命了>-009fcc?logoWidth=1" title="长江淮河太湖洪灾警报全拉响！官方：听天由命了  " alt="长江淮河太湖洪灾警报全拉响！官方：听天由命了  "></a></p>
-<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵：美国制裁中共党员 第一个就是马云  >-009fcc?logoWidth=1" title="郭文贵：美国制裁中共党员 第一个就是马云  " alt="郭文贵：美国制裁中共党员 第一个就是马云  "></a></p>
-<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/19/a102897343.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话：中共南海基地做好被强拆准备，被>-009fcc?logoWidth=1" title="外交部大实话：中共南海基地做好被强拆准备，被制裁的美国人来不了中国“损失巨大”  " alt="外交部大实话：中共南海基地做好被强拆准备，被制裁的美国人来不了中国“损失巨大”  "></a></p>
+<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/风水师：中国土龙逃走 四大危机齐来     >-009fcc?logoWidth=1" title="风水师：中国土龙逃走 四大危机齐来  " alt="风水师：中国土龙逃走 四大危机齐来  "></a></p>
+<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝变形渗漏 中共专家仍狂言：大坝可挡核>-009fcc?logoWidth=1" title="三峡大坝变形渗漏 中共专家仍狂言：大坝可挡核武  " alt="三峡大坝变形渗漏 中共专家仍狂言：大坝可挡核武  "></a></p>
+<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897643.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习防政变？政法系清理门户21官员齐落网   >-009fcc?logoWidth=1" title="习防政变？政法系清理门户21官员齐落网  " alt="习防政变？政法系清理门户21官员齐落网  "></a></p>
+<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润再发声：一日不死便一日呼唤      >-009fcc?logoWidth=1" title="许章润再发声：一日不死便一日呼唤  " alt="许章润再发声：一日不死便一日呼唤  "></a></p>
 <p><a href="https://github.com/tlrwgy3357/djy/blob/master/gb/20/7/19/n12268164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普粉丝谈华裔选民为何支持川普       >-009fcc?logoWidth=1" title="川普粉丝谈华裔选民为何支持川普  " alt="川普粉丝谈华裔选民为何支持川普  "></a></p>
 <p><a href="https://github.com/tlrwgy3357/djy/blob/master/gb/20/7/19/n12266687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：制止最大人权犯罪 拯救人类道德文明  >-009fcc?logoWidth=1" title="田云：制止最大人权犯罪 拯救人类道德文明  " alt="田云：制止最大人权犯罪 拯救人类道德文明  "></a></p>
-<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897757.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东京25岁女子吃生鱼片喉咙痛 夹出4厘米蛔虫>-009fcc?logoWidth=1" title="东京25岁女子吃生鱼片喉咙痛 夹出4厘米蛔虫  " alt="东京25岁女子吃生鱼片喉咙痛 夹出4厘米蛔虫  "></a></p>
+<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/19/a102897461.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟禁中共党员入境身份难辨？ 一纸搞定   >-009fcc?logoWidth=1" title="美拟禁中共党员入境身份难辨？ 一纸搞定  " alt="美拟禁中共党员入境身份难辨？ 一纸搞定  "></a></p>
 <p><a href="https://github.com/tlrwgy3357/djy/blob/master/gb/20/7/20/n12269686.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆乌市“战时状态”后 新增病例“暴增”  >-009fcc?logoWidth=1" title="新疆乌市“战时状态”后 新增病例“暴增”  " alt="新疆乌市“战时状态”后 新增病例“暴增”  "></a></p>
 <p><a href="https://github.com/tlrwgy3357/djy/blob/master/gb/20/7/20/n12268633.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普香港行政令 将制裁哪些对象       >-009fcc?logoWidth=1" title="川普香港行政令 将制裁哪些对象  " alt="川普香港行政令 将制裁哪些对象  "></a></p>
-<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/19/a102897374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刘伯温预言《金陵塔碑文》最新解读！三峡大坝断>-009fcc?logoWidth=1" title="刘伯温预言《金陵塔碑文》最新解读！三峡大坝断龙脉，2020年大洪水爆发？【地球旅馆】  " alt="刘伯温预言《金陵塔碑文》最新解读！三峡大坝断龙脉，2020年大洪水爆发？【地球旅馆】  "></a></p>
-<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897580.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/批准孔子学院在政府设施办活动 华盛顿市长惹议>-009fcc?logoWidth=1" title="批准孔子学院在政府设施办活动 华盛顿市长惹议  " alt="批准孔子学院在政府设施办活动 华盛顿市长惹议  "></a></p>
+<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江淮河太湖洪灾警报全拉响！官方：听天由命了>-009fcc?logoWidth=1" title="长江淮河太湖洪灾警报全拉响！官方：听天由命了  " alt="长江淮河太湖洪灾警报全拉响！官方：听天由命了  "></a></p>
+<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵：美国制裁中共党员 第一个就是马云  >-009fcc?logoWidth=1" title="郭文贵：美国制裁中共党员 第一个就是马云  " alt="郭文贵：美国制裁中共党员 第一个就是马云  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tlrwgy3357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tlrwgy3357/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tlrwgy3357/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tlrwgy3357/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tlrwgy3357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tlrwgy3357/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tlrwgy3357/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tlrwgy3357/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/99999999">git.io/99999999</a></div>
+<div align="center">短网址: <a href="https://git.io/ehhhh">git.io/ehhhh</a></div>
 

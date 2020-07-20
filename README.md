@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hokrog375/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hokrog375/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/axxxx">git.io/axxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3344">x.co/3344</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/s5555">git.io/s5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4pp">x.co/4pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/hokrog375/ntdtv/blob/master/gb/2020/07/20/a102897600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江淮河太湖洪灾警报全拉响！官方：听天由命了>-009fcc?logoWidth=1" title="长江淮河太湖洪灾警报全拉响！官方：听天由命了  " alt="长江淮河太湖洪灾警报全拉响！官方：听天由命了  "></a></p>
 <p><a href="https://github.com/hokrog375/ntdtv/blob/master/gb/2020/07/20/a102897603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润再发声：一日不死便一日呼唤      >-009fcc?logoWidth=1" title="许章润再发声：一日不死便一日呼唤  " alt="许章润再发声：一日不死便一日呼唤  "></a></p>
 <p><a href="https://github.com/hokrog375/ntdtv/blob/master/gb/2020/07/19/a102897531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“一江一河一湖”洪水齐发 安徽炸堤荆州发红色>-009fcc?logoWidth=1" title="“一江一河一湖”洪水齐发 安徽炸堤荆州发红色预警  " alt="“一江一河一湖”洪水齐发 安徽炸堤荆州发红色预警  "></a></p>
 <p><a href="https://github.com/hokrog375/ntdtv/blob/master/gb/2020/07/19/a102897378.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南中国海是否会爆发热战？/隔空嫖娼     >-009fcc?logoWidth=1" title="南中国海是否会爆发热战？/隔空嫖娼  " alt="南中国海是否会爆发热战？/隔空嫖娼  "></a></p>
 <p><a href="https://github.com/hokrog375/ntdtv/blob/master/gb/2020/07/19/a102897353.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官方承认三峡大坝位移变形        >-009fcc?logoWidth=1" title="中共官方承认三峡大坝位移变形  " alt="中共官方承认三峡大坝位移变形  "></a></p>
 <p><a href="https://github.com/hokrog375/ntdtv/blob/master/gb/2020/07/19/a102897264.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：中国洪灾使习陷困局 不愿“亲自指挥”？>-009fcc?logoWidth=1" title="美媒：中国洪灾使习陷困局 不愿“亲自指挥”？  " alt="美媒：中国洪灾使习陷困局 不愿“亲自指挥”？  "></a></p>
-<p><a href="https://github.com/hokrog375/ntdtv/blob/master/gb/2020/07/19/a102897246.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡超警戒水位19米仍在涨 党媒自曝大坝位移>-009fcc?logoWidth=1" title="三峡超警戒水位19米仍在涨 党媒自曝大坝位移变形  " alt="三峡超警戒水位19米仍在涨 党媒自曝大坝位移变形  "></a></p>
 <p><a href="https://github.com/hokrog375/ntdtv/blob/master/gb/2020/07/20/a102897580.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华盛顿市长与孔子学院合作 批准其进入美政府设>-009fcc?logoWidth=1" title="华盛顿市长与孔子学院合作 批准其进入美政府设施  " alt="华盛顿市长与孔子学院合作 批准其进入美政府设施  "></a></p>
 <p><a href="https://github.com/hokrog375/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伊朗2500万人感染 超官方通报近百倍   >-009fcc?logoWidth=1" title="伊朗2500万人感染 超官方通报近百倍  " alt="伊朗2500万人感染 超官方通报近百倍  "></a></p>
 <p><a href="https://github.com/hokrog375/ntdtv/blob/master/gb/2020/07/19/a102897543.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国遭数十年最严重洪灾 中共消极应对    >-009fcc?logoWidth=1" title="中国遭数十年最严重洪灾 中共消极应对  " alt="中国遭数十年最严重洪灾 中共消极应对  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/hokrog375/djy/blob/master/gb/20/7/19/n12267642.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆影院复工：一张票挣1毛 业者观众冷淡  >-009fcc?logoWidth=1" title="大陆影院复工：一张票挣1毛 业者观众冷淡  " alt="大陆影院复工：一张票挣1毛 业者观众冷淡  "></a></p>
 <p><a href="https://github.com/hokrog375/djy/blob/master/gb/20/7/19/n12267808.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/跳水世界冠军劳丽诗遭微博封号一年      >-009fcc?logoWidth=1" title="跳水世界冠军劳丽诗遭微博封号一年  " alt="跳水世界冠军劳丽诗遭微博封号一年  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/hokrog375/ntdtv/blob/master/gb/2020/07/19/a102897246.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡超警戒水位19米仍在涨 党媒自曝大坝位移>-009fcc?logoWidth=1" title="三峡超警戒水位19米仍在涨 党媒自曝大坝位移变形  " alt="三峡超警戒水位19米仍在涨 党媒自曝大坝位移变形  "></a></p>
 <p><a href="https://github.com/hokrog375/ntdtv/blob/master/gb/2020/07/19/a102897167.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伊朗2500万染疫 中共高官为何不染病？/习>-009fcc?logoWidth=1" title="伊朗2500万染疫 中共高官为何不染病？/习5月已部署救灾？  " alt="伊朗2500万染疫 中共高官为何不染病？/习5月已部署救灾？  "></a></p>
 <p><a href="https://github.com/hokrog375/djy/blob/master/gb/20/7/19/n12267484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润获释后首发声：极权必败 官员只待弃舟 >-009fcc?logoWidth=1" title="许章润获释后首发声：极权必败 官员只待弃舟  " alt="许章润获释后首发声：极权必败 官员只待弃舟  "></a></p>
 <p><a href="https://github.com/hokrog375/djy/blob/master/gb/20/7/18/n12266257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：中共何时爆发政变？          >-009fcc?logoWidth=1" title="王赫：中共何时爆发政变？  " alt="王赫：中共何时爆发政变？  "></a></p>
@@ -484,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hokrog375/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hokrog375/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hokrog375/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hokrog375/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hokrog375/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hokrog375/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hokrog375/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hokrog375/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hokrog375/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hokrog375/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/axxxx">git.io/axxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/s5555">git.io/s5555</a></div>
 

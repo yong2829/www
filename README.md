@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hokrog375/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hokrog375/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/6666666">git.io/6666666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3222">x.co/3222</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/reeee">git.io/reeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppj">x.co/ppj</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/hokrog375/ntdtv/blob/master/gb/2020/07/19/a102897531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“一江一河一湖”洪水齐发 安徽炸堤荆州发红色>-009fcc?logoWidth=1" title="“一江一河一湖”洪水齐发 安徽炸堤荆州发红色预警  " alt="“一江一河一湖”洪水齐发 安徽炸堤荆州发红色预警  "></a></p>
 <p><a href="https://github.com/hokrog375/ntdtv/blob/master/gb/2020/07/19/a102897378.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南中国海是否会爆发热战？/隔空嫖娼     >-009fcc?logoWidth=1" title="南中国海是否会爆发热战？/隔空嫖娼  " alt="南中国海是否会爆发热战？/隔空嫖娼  "></a></p>
 <p><a href="https://github.com/hokrog375/ntdtv/blob/master/gb/2020/07/19/a102897353.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官方承认三峡大坝位移变形        >-009fcc?logoWidth=1" title="中共官方承认三峡大坝位移变形  " alt="中共官方承认三峡大坝位移变形  "></a></p>
+<p><a href="https://github.com/hokrog375/ntdtv/blob/master/gb/2020/07/20/a102897605.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回应中共港版国安法 英或暂停与港引渡协议  >-009fcc?logoWidth=1" title="回应中共港版国安法 英或暂停与港引渡协议  " alt="回应中共港版国安法 英或暂停与港引渡协议  "></a></p>
+<p><a href="https://github.com/hokrog375/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伊朗2500万人感染 超官方通报近百倍   >-009fcc?logoWidth=1" title="伊朗2500万人感染 超官方通报近百倍  " alt="伊朗2500万人感染 超官方通报近百倍  "></a></p>
 <p><a href="https://github.com/hokrog375/ntdtv/blob/master/gb/2020/07/20/a102897660.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/跳水世界冠军劳丽诗因言论被微博封号一年   >-009fcc?logoWidth=1" title="跳水世界冠军劳丽诗因言论被微博封号一年  " alt="跳水世界冠军劳丽诗因言论被微博封号一年  "></a></p>
 <p><a href="https://github.com/hokrog375/ntdtv/blob/master/gb/2020/07/20/a102897636.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伊朗爆炸与火灾频传 中部一电厂也传事故   >-009fcc?logoWidth=1" title="伊朗爆炸与火灾频传 中部一电厂也传事故  " alt="伊朗爆炸与火灾频传 中部一电厂也传事故  "></a></p>
 <p><a href="https://github.com/hokrog375/ntdtv/blob/master/gb/2020/07/20/a102897580.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华盛顿市长与孔子学院合作 批准其进入美政府设>-009fcc?logoWidth=1" title="华盛顿市长与孔子学院合作 批准其进入美政府设施  " alt="华盛顿市长与孔子学院合作 批准其进入美政府设施  "></a></p>
-<p><a href="https://github.com/hokrog375/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伊朗2500万人感染 超官方通报近百倍   >-009fcc?logoWidth=1" title="伊朗2500万人感染 超官方通报近百倍  " alt="伊朗2500万人感染 超官方通报近百倍  "></a></p>
-<p><a href="https://github.com/hokrog375/ntdtv/blob/master/gb/2020/07/19/a102897543.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国遭数十年最严重洪灾 中共消极应对    >-009fcc?logoWidth=1" title="中国遭数十年最严重洪灾 中共消极应对  " alt="中国遭数十年最严重洪灾 中共消极应对  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/hokrog375/djy/blob/master/gb/20/7/19/n12267738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/视中共为头号对手 美指挥机一周四次靠近广东 >-009fcc?logoWidth=1" title="视中共为头号对手 美指挥机一周四次靠近广东  " alt="视中共为头号对手 美指挥机一周四次靠近广东  "></a></p>
 <p><a href="https://github.com/hokrog375/djy/blob/master/gb/20/7/19/n12267998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫幕僚长：将会看到更多对华行动      >-009fcc?logoWidth=1" title="白宫幕僚长：将会看到更多对华行动  " alt="白宫幕僚长：将会看到更多对华行动  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hokrog375/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hokrog375/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hokrog375/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hokrog375/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hokrog375/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hokrog375/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hokrog375/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hokrog375/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hokrog375/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hokrog375/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/6666666">git.io/6666666</a></div>
+<div align="center">短网址: <a href="https://git.io/reeee">git.io/reeee</a></div>
 

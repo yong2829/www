@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/iqhfjd310/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/iqhfjd310/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/akkkk">git.io/akkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2229">x.co/2229</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/66666666">git.io/66666666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/iqhfjd310/ntdtv/blob/master/gb/2020/07/20/a102897603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润再发声：一日不死便一日呼唤      >-009fcc?logoWidth=1" title="许章润再发声：一日不死便一日呼唤  " alt="许章润再发声：一日不死便一日呼唤  "></a></p>
 <p><a href="https://github.com/iqhfjd310/ntdtv/blob/master/gb/2020/07/19/a102897531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“一江一河一湖”洪水齐发 安徽炸堤荆州发红色>-009fcc?logoWidth=1" title="“一江一河一湖”洪水齐发 安徽炸堤荆州发红色预警  " alt="“一江一河一湖”洪水齐发 安徽炸堤荆州发红色预警  "></a></p>
 <p><a href="https://github.com/iqhfjd310/ntdtv/blob/master/gb/2020/07/19/a102897378.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南中国海是否会爆发热战？/隔空嫖娼     >-009fcc?logoWidth=1" title="南中国海是否会爆发热战？/隔空嫖娼  " alt="南中国海是否会爆发热战？/隔空嫖娼  "></a></p>
+<p><a href="https://github.com/iqhfjd310/ntdtv/blob/master/gb/2020/07/20/a102897722.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/雨季闹洪患 印度、尼泊尔至少189人死   >-009fcc?logoWidth=1" title="雨季闹洪患 印度、尼泊尔至少189人死  " alt="雨季闹洪患 印度、尼泊尔至少189人死  "></a></p>
 <p><a href="https://github.com/iqhfjd310/ntdtv/blob/master/gb/2020/07/20/a102897708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵：美国制裁中共党员 第一个就是马云  >-009fcc?logoWidth=1" title="郭文贵：美国制裁中共党员 第一个就是马云  " alt="郭文贵：美国制裁中共党员 第一个就是马云  "></a></p>
 <p><a href="https://github.com/iqhfjd310/ntdtv/blob/master/gb/2020/07/20/a102897684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强再戳“中国梦”：做什么事要量力而行  >-009fcc?logoWidth=1" title="李克强再戳“中国梦”：做什么事要量力而行  " alt="李克强再戳“中国梦”：做什么事要量力而行  "></a></p>
 <p><a href="https://github.com/iqhfjd310/ntdtv/blob/master/gb/2020/07/20/a102897688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/珠宝店要倒了 老板埋百万美元宝藏等你来寻宝 >-009fcc?logoWidth=1" title="珠宝店要倒了 老板埋百万美元宝藏等你来寻宝  " alt="珠宝店要倒了 老板埋百万美元宝藏等你来寻宝  "></a></p>
 <p><a href="https://github.com/iqhfjd310/ntdtv/blob/master/gb/2020/07/20/a102897605.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回应中共港版国安法 英或暂停与港引渡协议  >-009fcc?logoWidth=1" title="回应中共港版国安法 英或暂停与港引渡协议  " alt="回应中共港版国安法 英或暂停与港引渡协议  "></a></p>
-<p><a href="https://github.com/iqhfjd310/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伊朗2500万人感染 超官方通报近百倍   >-009fcc?logoWidth=1" title="伊朗2500万人感染 超官方通报近百倍  " alt="伊朗2500万人感染 超官方通报近百倍  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/iqhfjd310/djy/blob/master/gb/20/7/19/n12267738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/视中共为头号对手 美指挥机一周四次靠近广东 >-009fcc?logoWidth=1" title="视中共为头号对手 美指挥机一周四次靠近广东  " alt="视中共为头号对手 美指挥机一周四次靠近广东  "></a></p>
 <p><a href="https://github.com/iqhfjd310/djy/blob/master/gb/20/7/19/n12267998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫幕僚长：将会看到更多对华行动      >-009fcc?logoWidth=1" title="白宫幕僚长：将会看到更多对华行动  " alt="白宫幕僚长：将会看到更多对华行动  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/iqhfjd310/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/iqhfjd310/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/iqhfjd310/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/iqhfjd310/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/iqhfjd310/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/iqhfjd310/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/iqhfjd310/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/iqhfjd310/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/iqhfjd310/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/iqhfjd310/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/akkkk">git.io/akkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/66666666">git.io/66666666</a></div>
 

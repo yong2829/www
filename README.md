@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tlrwgy3357/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tlrwgy3357/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/t6666">git.io/t6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/udd">x.co/udd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h2222">git.io/h2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3777">x.co/3777</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵：美国制裁中共党员 第一个就是马云  >-009fcc?logoWidth=1" title="郭文贵：美国制裁中共党员 第一个就是马云  " alt="郭文贵：美国制裁中共党员 第一个就是马云  "></a></p>
 <p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强再戳“中国梦”：做什么事要量力而行  >-009fcc?logoWidth=1" title="李克强再戳“中国梦”：做什么事要量力而行  " alt="李克强再戳“中国梦”：做什么事要量力而行  "></a></p>
 <p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝变形渗漏 中共专家仍狂言：大坝可挡核>-009fcc?logoWidth=1" title="三峡大坝变形渗漏 中共专家仍狂言：大坝可挡核武  " alt="三峡大坝变形渗漏 中共专家仍狂言：大坝可挡核武  "></a></p>
+<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/19/a102897467.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反迫害21周年 全球法轮功学员720纪念活动>-009fcc?logoWidth=1" title="反迫害21周年 全球法轮功学员720纪念活动  " alt="反迫害21周年 全球法轮功学员720纪念活动  "></a></p>
 <p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伊朗2500万人感染 超官方通报近百倍   >-009fcc?logoWidth=1" title="伊朗2500万人感染 超官方通报近百倍  " alt="伊朗2500万人感染 超官方通报近百倍  "></a></p>
 <p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897758.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/派对狂欢变袭警 德国法兰克福39人被捕   >-009fcc?logoWidth=1" title="派对狂欢变袭警 德国法兰克福39人被捕  " alt="派对狂欢变袭警 德国法兰克福39人被捕  "></a></p>
 <p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897757.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东京25岁女子吃生鱼片喉咙痛 夹出4厘米蛔虫>-009fcc?logoWidth=1" title="东京25岁女子吃生鱼片喉咙痛 夹出4厘米蛔虫  " alt="东京25岁女子吃生鱼片喉咙痛 夹出4厘米蛔虫  "></a></p>
-<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897722.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/雨季引发洪患 印度、尼泊尔至少189人死  >-009fcc?logoWidth=1" title="雨季引发洪患 印度、尼泊尔至少189人死  " alt="雨季引发洪患 印度、尼泊尔至少189人死  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tlrwgy3357/djy/blob/master/gb/20/7/19/n12267738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/视中共为头号对手 美指挥机一周四次靠近广东 >-009fcc?logoWidth=1" title="视中共为头号对手 美指挥机一周四次靠近广东  " alt="视中共为头号对手 美指挥机一周四次靠近广东  "></a></p>
 <p><a href="https://github.com/tlrwgy3357/djy/blob/master/gb/20/7/19/n12267998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫幕僚长：将会看到更多对华行动      >-009fcc?logoWidth=1" title="白宫幕僚长：将会看到更多对华行动  " alt="白宫幕僚长：将会看到更多对华行动  "></a></p>
@@ -39,16 +39,16 @@
 <p><a href="https://github.com/tlrwgy3357/djy/blob/master/gb/20/7/20/n12269196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度人华府中领馆前抗议 “打倒中国共产党” >-009fcc?logoWidth=1" title="印度人华府中领馆前抗议 “打倒中国共产党”  " alt="印度人华府中领馆前抗议 “打倒中国共产党”  "></a></p>
 <p><a href="https://github.com/tlrwgy3357/djy/blob/master/gb/20/7/20/n12269232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/受黑客攻击 甘肃检察机关网上笔试被迫中止  >-009fcc?logoWidth=1" title="受黑客攻击 甘肃检察机关网上笔试被迫中止  " alt="受黑客攻击 甘肃检察机关网上笔试被迫中止  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/19/a102897461.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟禁中共党员入境身份难辨？ 一纸搞定   >-009fcc?logoWidth=1" title="美拟禁中共党员入境身份难辨？ 一纸搞定  " alt="美拟禁中共党员入境身份难辨？ 一纸搞定  "></a></p>
 <p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江淮河太湖洪灾警报全拉响！官方：听天由命了>-009fcc?logoWidth=1" title="长江淮河太湖洪灾警报全拉响！官方：听天由命了  " alt="长江淮河太湖洪灾警报全拉响！官方：听天由命了  "></a></p>
 <p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/19/a102897343.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话：中共南海基地做好被强拆准备，被>-009fcc?logoWidth=1" title="外交部大实话：中共南海基地做好被强拆准备，被制裁的美国人来不了中国“损失巨大”  " alt="外交部大实话：中共南海基地做好被强拆准备，被制裁的美国人来不了中国“损失巨大”  "></a></p>
-<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王维洛揭三峡大坝“可防百年一遇洪水”内幕  >-009fcc?logoWidth=1" title="王维洛揭三峡大坝“可防百年一遇洪水”内幕  " alt="王维洛揭三峡大坝“可防百年一遇洪水”内幕  "></a></p>
 <p><a href="https://github.com/tlrwgy3357/djy/blob/master/gb/20/7/19/n12267819.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美外交电报曝光 指武汉病毒研究有安全疏漏  >-009fcc?logoWidth=1" title="美外交电报曝光 指武汉病毒研究有安全疏漏  " alt="美外交电报曝光 指武汉病毒研究有安全疏漏  "></a></p>
 <p><a href="https://github.com/tlrwgy3357/djy/blob/master/gb/20/7/19/n12266687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：制止最大人权犯罪 拯救人类道德文明  >-009fcc?logoWidth=1" title="田云：制止最大人权犯罪 拯救人类道德文明  " alt="田云：制止最大人权犯罪 拯救人类道德文明  "></a></p>
-<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897580.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/批准孔子学院在政府设施办活动 华盛顿市长惹议>-009fcc?logoWidth=1" title="批准孔子学院在政府设施办活动 华盛顿市长惹议  " alt="批准孔子学院在政府设施办活动 华盛顿市长惹议  "></a></p>
-<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/19/a102897374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刘伯温预言《金陵塔碑文》最新解读！三峡大坝断>-009fcc?logoWidth=1" title="刘伯温预言《金陵塔碑文》最新解读！三峡大坝断龙脉，2020年大洪水爆发？【地球旅馆】  " alt="刘伯温预言《金陵塔碑文》最新解读！三峡大坝断龙脉，2020年大洪水爆发？【地球旅馆】  "></a></p>
+<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王维洛揭三峡大坝“可防百年一遇洪水”内幕  >-009fcc?logoWidth=1" title="王维洛揭三峡大坝“可防百年一遇洪水”内幕  " alt="王维洛揭三峡大坝“可防百年一遇洪水”内幕  "></a></p>
 <p><a href="https://github.com/tlrwgy3357/djy/blob/master/gb/20/7/19/n12266809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江支流水位逼近历史最高 安徽急炸坝泄洪  >-009fcc?logoWidth=1" title="长江支流水位逼近历史最高 安徽急炸坝泄洪  " alt="长江支流水位逼近历史最高 安徽急炸坝泄洪  "></a></p>
 <p><a href="https://github.com/tlrwgy3357/djy/blob/master/gb/20/7/19/n12267642.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆影院复工：一张票挣1毛 业者观众冷淡  >-009fcc?logoWidth=1" title="大陆影院复工：一张票挣1毛 业者观众冷淡  " alt="大陆影院复工：一张票挣1毛 业者观众冷淡  "></a></p>
-<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/珠宝店要倒了 老板埋百万美元宝藏等你来寻宝 >-009fcc?logoWidth=1" title="珠宝店要倒了 老板埋百万美元宝藏等你来寻宝  " alt="珠宝店要倒了 老板埋百万美元宝藏等你来寻宝  "></a></p>
+<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897580.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/批准孔子学院在政府设施办活动 华盛顿市长惹议>-009fcc?logoWidth=1" title="批准孔子学院在政府设施办活动 华盛顿市长惹议  " alt="批准孔子学院在政府设施办活动 华盛顿市长惹议  "></a></p>
+<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/19/a102897374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刘伯温预言《金陵塔碑文》最新解读！三峡大坝断>-009fcc?logoWidth=1" title="刘伯温预言《金陵塔碑文》最新解读！三峡大坝断龙脉，2020年大洪水爆发？【地球旅馆】  " alt="刘伯温预言《金陵塔碑文》最新解读！三峡大坝断龙脉，2020年大洪水爆发？【地球旅馆】  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tlrwgy3357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tlrwgy3357/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tlrwgy3357/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tlrwgy3357/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tlrwgy3357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tlrwgy3357/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tlrwgy3357/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tlrwgy3357/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/t6666">git.io/t6666</a></div>
+<div align="center">短网址: <a href="https://git.io/h2222">git.io/h2222</a></div>
 

@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tlrwgy3357/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tlrwgy3357/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qgggg">git.io/qgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa9">x.co/aa9</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/m7777">git.io/m7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aav">x.co/aav</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -47,8 +47,8 @@
 <p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897757.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东京25岁女子吃生鱼片喉咙痛 夹出4厘米蛔虫>-009fcc?logoWidth=1" title="东京25岁女子吃生鱼片喉咙痛 夹出4厘米蛔虫  " alt="东京25岁女子吃生鱼片喉咙痛 夹出4厘米蛔虫  "></a></p>
 <p><a href="https://github.com/tlrwgy3357/djy/blob/master/gb/20/7/19/n12267819.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美外交电报曝光 指武汉病毒研究有安全疏漏  >-009fcc?logoWidth=1" title="美外交电报曝光 指武汉病毒研究有安全疏漏  " alt="美外交电报曝光 指武汉病毒研究有安全疏漏  "></a></p>
 <p><a href="https://github.com/tlrwgy3357/djy/blob/master/gb/20/7/19/n12267642.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆影院复工：一张票挣1毛 业者观众冷淡  >-009fcc?logoWidth=1" title="大陆影院复工：一张票挣1毛 业者观众冷淡  " alt="大陆影院复工：一张票挣1毛 业者观众冷淡  "></a></p>
-<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897580.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/批准孔子学院在政府设施办活动 华盛顿市长惹议>-009fcc?logoWidth=1" title="批准孔子学院在政府设施办活动 华盛顿市长惹议  " alt="批准孔子学院在政府设施办活动 华盛顿市长惹议  "></a></p>
 <p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/19/a102897374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刘伯温预言《金陵塔碑文》最新解读！三峡大坝断>-009fcc?logoWidth=1" title="刘伯温预言《金陵塔碑文》最新解读！三峡大坝断龙脉，2020年大洪水爆发？【地球旅馆】  " alt="刘伯温预言《金陵塔碑文》最新解读！三峡大坝断龙脉，2020年大洪水爆发？【地球旅馆】  "></a></p>
+<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897580.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/批准孔子学院在政府设施办活动 华盛顿市长惹议>-009fcc?logoWidth=1" title="批准孔子学院在政府设施办活动 华盛顿市长惹议  " alt="批准孔子学院在政府设施办活动 华盛顿市长惹议  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tlrwgy3357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tlrwgy3357/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tlrwgy3357/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tlrwgy3357/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tlrwgy3357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tlrwgy3357/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tlrwgy3357/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tlrwgy3357/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qgggg">git.io/qgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/m7777">git.io/m7777</a></div>
 

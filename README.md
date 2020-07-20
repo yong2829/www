@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tlrwgy3357/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tlrwgy3357/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qssss">git.io/qssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/344">x.co/344</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ptttt">git.io/ptttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3338">x.co/3338</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国防部长：中共有野心 是美国首要战略对手 >-009fcc?logoWidth=1" title="美国防部长：中共有野心 是美国首要战略对手  " alt="美国防部长：中共有野心 是美国首要战略对手  "></a></p>
 <p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强再戳“中国梦”：做什么事要量力而行  >-009fcc?logoWidth=1" title="李克强再戳“中国梦”：做什么事要量力而行  " alt="李克强再戳“中国梦”：做什么事要量力而行  "></a></p>
 <p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王维洛揭三峡大坝“可防百年一遇洪水”内幕  >-009fcc?logoWidth=1" title="王维洛揭三峡大坝“可防百年一遇洪水”内幕  " alt="王维洛揭三峡大坝“可防百年一遇洪水”内幕  "></a></p>
+<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102898102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抖音英国也遇阻 研发总部欲设伦敦谈判被中止 >-009fcc?logoWidth=1" title="抖音英国也遇阻 研发总部欲设伦敦谈判被中止  " alt="抖音英国也遇阻 研发总部欲设伦敦谈判被中止  "></a></p>
+<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑人女子反对“黑命贵”暴力 黑漆猛泼川普大厦>-009fcc?logoWidth=1" title="黑人女子反对“黑命贵”暴力 黑漆猛泼川普大厦外BLM标语  " alt="黑人女子反对“黑命贵”暴力 黑漆猛泼川普大厦外BLM标语  "></a></p>
 <p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102898084.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度人华府中领馆前抗议 “打倒中国共产党” >-009fcc?logoWidth=1" title="印度人华府中领馆前抗议 “打倒中国共产党”  " alt="印度人华府中领馆前抗议 “打倒中国共产党”  "></a></p>
 <p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102898038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡平：中共对法轮功的污蔑走入穷途末路    >-009fcc?logoWidth=1" title="胡平：中共对法轮功的污蔑走入穷途末路  " alt="胡平：中共对法轮功的污蔑走入穷途末路  "></a></p>
 <p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102898033.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国外相：将暂停与香港的引渡条约      >-009fcc?logoWidth=1" title="英国外相：将暂停与香港的引渡条约  " alt="英国外相：将暂停与香港的引渡条约  "></a></p>
-<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897867.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润：极权必败 天快亮了         >-009fcc?logoWidth=1" title="许章润：极权必败 天快亮了  " alt="许章润：极权必败 天快亮了  "></a></p>
-<p><a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/2020/07/20/a102897866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝变形渗漏 中共专家仍狂言：大坝可挡核>-009fcc?logoWidth=1" title="三峡大坝变形渗漏 中共专家仍狂言：大坝可挡核武  " alt="三峡大坝变形渗漏 中共专家仍狂言：大坝可挡核武  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tlrwgy3357/djy/blob/master/gb/20/7/20/n12269752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千人婚宴或致乌鲁木齐疫情爆发        >-009fcc?logoWidth=1" title="千人婚宴或致乌鲁木齐疫情爆发  " alt="千人婚宴或致乌鲁木齐疫情爆发  "></a></p>
 <p><a href="https://github.com/tlrwgy3357/djy/blob/master/gb/20/7/19/n12267738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/视中共为头号对手 美指挥机一周四次靠近广东 >-009fcc?logoWidth=1" title="视中共为头号对手 美指挥机一周四次靠近广东  " alt="视中共为头号对手 美指挥机一周四次靠近广东  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tlrwgy3357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tlrwgy3357/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tlrwgy3357/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tlrwgy3357/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tlrwgy3357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tlrwgy3357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tlrwgy3357/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tlrwgy3357/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tlrwgy3357/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qssss">git.io/qssss</a></div>
+<div align="center">短网址: <a href="https://git.io/ptttt">git.io/ptttt</a></div>
 

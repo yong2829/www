@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/iqhfjd310/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/iqhfjd310/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b3333">git.io/b3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/idd">x.co/idd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/shhhh">git.io/shhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2aa">x.co/2aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,7 +20,7 @@
 <p><a href="https://github.com/iqhfjd310/ntdtv/blob/master/gb/2020/07/20/a102897643.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习防政变？政法系清理门户21官员齐落网   >-009fcc?logoWidth=1" title="习防政变？政法系清理门户21官员齐落网  " alt="习防政变？政法系清理门户21官员齐落网  "></a></p>
 <p><a href="https://github.com/iqhfjd310/ntdtv/blob/master/gb/2020/07/20/a102897600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江淮河太湖洪灾警报全拉响！官方：听天由命了>-009fcc?logoWidth=1" title="长江淮河太湖洪灾警报全拉响！官方：听天由命了  " alt="长江淮河太湖洪灾警报全拉响！官方：听天由命了  "></a></p>
 <p><a href="https://github.com/iqhfjd310/ntdtv/blob/master/gb/2020/07/20/a102897603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润再发声：一日不死便一日呼唤      >-009fcc?logoWidth=1" title="许章润再发声：一日不死便一日呼唤  " alt="许章润再发声：一日不死便一日呼唤  "></a></p>
-<p><a href="https://github.com/iqhfjd310/ntdtv/blob/master/gb/2020/07/20/a102897722.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/雨季闹洪患 印度、尼泊尔至少189人死   >-009fcc?logoWidth=1" title="雨季闹洪患 印度、尼泊尔至少189人死  " alt="雨季闹洪患 印度、尼泊尔至少189人死  "></a></p>
+<p><a href="https://github.com/iqhfjd310/ntdtv/blob/master/gb/2020/07/20/a102897722.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/雨季引发洪患 印度、尼泊尔至少189人死  >-009fcc?logoWidth=1" title="雨季引发洪患 印度、尼泊尔至少189人死  " alt="雨季引发洪患 印度、尼泊尔至少189人死  "></a></p>
 <p><a href="https://github.com/iqhfjd310/ntdtv/blob/master/gb/2020/07/20/a102897708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵：美国制裁中共党员 第一个就是马云  >-009fcc?logoWidth=1" title="郭文贵：美国制裁中共党员 第一个就是马云  " alt="郭文贵：美国制裁中共党员 第一个就是马云  "></a></p>
 <p><a href="https://github.com/iqhfjd310/ntdtv/blob/master/gb/2020/07/20/a102897688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/珠宝店要倒了 老板埋百万美元宝藏等你来寻宝 >-009fcc?logoWidth=1" title="珠宝店要倒了 老板埋百万美元宝藏等你来寻宝  " alt="珠宝店要倒了 老板埋百万美元宝藏等你来寻宝  "></a></p>
 <p><a href="https://github.com/iqhfjd310/ntdtv/blob/master/gb/2020/07/20/a102897605.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回应中共港版国安法 英或暂停与港引渡协议  >-009fcc?logoWidth=1" title="回应中共港版国安法 英或暂停与港引渡协议  " alt="回应中共港版国安法 英或暂停与港引渡协议  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/iqhfjd310/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/iqhfjd310/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/iqhfjd310/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/iqhfjd310/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/iqhfjd310/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/iqhfjd310/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/iqhfjd310/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/iqhfjd310/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/iqhfjd310/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/iqhfjd310/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/b3333">git.io/b3333</a></div>
+<div align="center">短网址: <a href="https://git.io/shhhh">git.io/shhhh</a></div>
 

@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jurnns391/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jurnns391/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/affff">git.io/affff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/668">x.co/668</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/utttt">git.io/utttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ydd">x.co/ydd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/21/a102898439.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝越泡越结实 原子弹轰炸也不怕 你信吗>-009fcc?logoWidth=1" title="三峡大坝越泡越结实 原子弹轰炸也不怕 你信吗？  " alt="三峡大坝越泡越结实 原子弹轰炸也不怕 你信吗？  "></a></p>
 <p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/21/a102898313.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共末日逃生计划一夜夭折 中共洗多少钱到海外>-009fcc?logoWidth=1" title="中共末日逃生计划一夜夭折 中共洗多少钱到海外  " alt="中共末日逃生计划一夜夭折 中共洗多少钱到海外  "></a></p>
 <p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/20/a102898301.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：拼了？习夺曾庆红家产/核研究所近百科学>-009fcc?logoWidth=1" title="文昭：拼了？习夺曾庆红家产/核研究所近百科学家辞职有内幕  " alt="文昭：拼了？习夺曾庆红家产/核研究所近百科学家辞职有内幕  "></a></p>
+<p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/21/a102898560.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7500亿欧元振兴方案 欧盟领袖达成协议  >-009fcc?logoWidth=1" title="7500亿欧元振兴方案 欧盟领袖达成协议  " alt="7500亿欧元振兴方案 欧盟领袖达成协议  "></a></p>
 <p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/21/a102898548.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山西金融贪官竟晖落马 家藏4亿现金     >-009fcc?logoWidth=1" title="山西金融贪官竟晖落马 家藏4亿现金  " alt="山西金融贪官竟晖落马 家藏4亿现金  "></a></p>
 <p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/21/a102898487.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/解禁一个月 西班牙出现约201处群聚感染  >-009fcc?logoWidth=1" title="解禁一个月 西班牙出现约201处群聚感染  " alt="解禁一个月 西班牙出现约201处群聚感染  "></a></p>
 <p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/21/a102898471.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵锦荣：港人启发世界 国际清醒掀反共潮   >-009fcc?logoWidth=1" title="赵锦荣：港人启发世界 国际清醒掀反共潮  " alt="赵锦荣：港人启发世界 国际清醒掀反共潮  "></a></p>
 <p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/21/a102898477.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共让这些国家成为朋友           >-009fcc?logoWidth=1" title="中共让这些国家成为朋友  " alt="中共让这些国家成为朋友  "></a></p>
-<p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/21/a102898468.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/侵犯新疆人权 美商务部再制裁11家中企   >-009fcc?logoWidth=1" title="侵犯新疆人权 美商务部再制裁11家中企  " alt="侵犯新疆人权 美商务部再制裁11家中企  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jurnns391/djy/blob/master/gb/20/7/20/n12269783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡水库将迎更大洪水 黄万里之子透露父遗嘱 >-009fcc?logoWidth=1" title="三峡水库将迎更大洪水 黄万里之子透露父遗嘱  " alt="三峡水库将迎更大洪水 黄万里之子透露父遗嘱  "></a></p>
 <p><a href="https://github.com/jurnns391/djy/blob/master/gb/20/7/20/n12270304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国无限期立停香港引渡条约 祭武器禁运   >-009fcc?logoWidth=1" title="英国无限期立停香港引渡条约 祭武器禁运  " alt="英国无限期立停香港引渡条约 祭武器禁运  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/jurnns391/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jurnns391/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jurnns391/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jurnns391/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jurnns391/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/jurnns391/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jurnns391/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jurnns391/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jurnns391/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jurnns391/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/affff">git.io/affff</a></div>
+<div align="center">短网址: <a href="https://git.io/utttt">git.io/utttt</a></div>
 

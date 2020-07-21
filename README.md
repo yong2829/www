@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cnijoq354/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cnijoq354/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/npppp">git.io/npppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/7pp">x.co/7pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/reeee">git.io/reeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/maa">x.co/maa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102898491.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平外交思想研究中心成立 网民笑翻：是得研>-009fcc?logoWidth=1" title="习近平外交思想研究中心成立 网民笑翻：是得研究  " alt="习近平外交思想研究中心成立 网民笑翻：是得研究  "></a></p>
 <p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102898479.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议不开了？习麻烦缠身 传元老想和他谈>-009fcc?logoWidth=1" title="北戴河会议不开了？习麻烦缠身 传元老想和他谈谈  " alt="北戴河会议不开了？习麻烦缠身 传元老想和他谈谈  "></a></p>
 <p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102898434.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海内斗不寻常 习近平神秘隐身 抛出一句话>-009fcc?logoWidth=1" title="中南海内斗不寻常 习近平神秘隐身 抛出一句话  " alt="中南海内斗不寻常 习近平神秘隐身 抛出一句话  "></a></p>
+<p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102899051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华人回国更难！中共统一要求登记需要核酸检查 >-009fcc?logoWidth=1" title="华人回国更难！中共统一要求登记需要核酸检查  " alt="华人回国更难！中共统一要求登记需要核酸检查  "></a></p>
 <p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102899052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥访欧 美英联手对抗中共格局形成    >-009fcc?logoWidth=1" title="蓬佩奥访欧 美英联手对抗中共格局形成  " alt="蓬佩奥访欧 美英联手对抗中共格局形成  "></a></p>
 <p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102899071.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地摊经济改头换面 中共推“小店经济”再提烟火>-009fcc?logoWidth=1" title="地摊经济改头换面 中共推“小店经济”再提烟火气  " alt="地摊经济改头换面 中共推“小店经济”再提烟火气  "></a></p>
 <p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102899063.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美控告两中国黑客 中共公安部黑手曝光    >-009fcc?logoWidth=1" title="美控告两中国黑客 中共公安部黑手曝光  " alt="美控告两中国黑客 中共公安部黑手曝光  "></a></p>
 <p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102899024.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江第三波洪峰即将形成  黄河淮河也齐发警报>-009fcc?logoWidth=1" title="长江第三波洪峰即将形成  黄河淮河也齐发警报  " alt="长江第三波洪峰即将形成  黄河淮河也齐发警报  "></a></p>
-<p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102898995.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网民揭中国奶业6大罪状被抓  数千万人发帖声>-009fcc?logoWidth=1" title="网民揭中国奶业6大罪状被抓  数千万人发帖声援  " alt="网民揭中国奶业6大罪状被抓  数千万人发帖声援  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/cnijoq354/djy/blob/master/gb/20/7/21/n12272533.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/明天系公然叫板当局 中共高层内斗激烈    >-009fcc?logoWidth=1" title="明天系公然叫板当局 中共高层内斗激烈  " alt="明天系公然叫板当局 中共高层内斗激烈  "></a></p>
 <p><a href="https://github.com/cnijoq354/djy/blob/master/gb/20/7/21/n12272606.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美众议院表决通过 更大范围禁用TikTok >-009fcc?logoWidth=1" title="美众议院表决通过 更大范围禁用TikTok  " alt="美众议院表决通过 更大范围禁用TikTok  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cnijoq354/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cnijoq354/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cnijoq354/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cnijoq354/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cnijoq354/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cnijoq354/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cnijoq354/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cnijoq354/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/npppp">git.io/npppp</a></div>
+<div align="center">短网址: <a href="https://git.io/reeee">git.io/reeee</a></div>
 

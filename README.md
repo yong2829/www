@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cnijoq354/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cnijoq354/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/puuuu">git.io/puuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2999">x.co/2999</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/55555">git.io/55555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp6">x.co/pp6</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102898491.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平外交思想研究中心成立 网民笑翻：是得研>-009fcc?logoWidth=1" title="习近平外交思想研究中心成立 网民笑翻：是得研究  " alt="习近平外交思想研究中心成立 网民笑翻：是得研究  "></a></p>
 <p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102898479.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议不开了？习麻烦缠身 传元老想和他谈>-009fcc?logoWidth=1" title="北戴河会议不开了？习麻烦缠身 传元老想和他谈谈  " alt="北戴河会议不开了？习麻烦缠身 传元老想和他谈谈  "></a></p>
 <p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102898434.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海内斗不寻常 习近平神秘隐身 抛出一句话>-009fcc?logoWidth=1" title="中南海内斗不寻常 习近平神秘隐身 抛出一句话  " alt="中南海内斗不寻常 习近平神秘隐身 抛出一句话  "></a></p>
+<p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102898836.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务卿蓬佩奥和英外交大臣拉布媒体记者会  >-009fcc?logoWidth=1" title="美国务卿蓬佩奥和英外交大臣拉布媒体记者会  " alt="美国务卿蓬佩奥和英外交大臣拉布媒体记者会  "></a></p>
 <p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港演艺圈爆群聚感染 全球逾60万丧生   >-009fcc?logoWidth=1" title="香港演艺圈爆群聚感染 全球逾60万丧生  " alt="香港演艺圈爆群聚感染 全球逾60万丧生  "></a></p>
 <p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102898750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海新市长龚正上任 传是刘鹤妹夫      >-009fcc?logoWidth=1" title="上海新市长龚正上任 传是刘鹤妹夫  " alt="上海新市长龚正上任 传是刘鹤妹夫  "></a></p>
+<p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102898751.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林74岁老人发真相资料 再遭中共非法抓捕 >-009fcc?logoWidth=1" title="吉林74岁老人发真相资料 再遭中共非法抓捕  " alt="吉林74岁老人发真相资料 再遭中共非法抓捕  "></a></p>
 <p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102898702.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东遭封杀后 中国奥运冠军也遭禁言一年  >-009fcc?logoWidth=1" title="郝海东遭封杀后 中国奥运冠军也遭禁言一年  " alt="郝海东遭封杀后 中国奥运冠军也遭禁言一年  "></a></p>
-<p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102898668.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法阴霾笼罩 法轮功在香港引关注   >-009fcc?logoWidth=1" title="港版国安法阴霾笼罩 法轮功在香港引关注  " alt="港版国安法阴霾笼罩 法轮功在香港引关注  "></a></p>
-<p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102898620.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“金盾工程”的蜕变           >-009fcc?logoWidth=1" title="中共“金盾工程”的蜕变  " alt="中共“金盾工程”的蜕变  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/cnijoq354/djy/blob/master/gb/20/7/20/n12269783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡水库将迎更大洪水 黄万里之子透露父遗嘱 >-009fcc?logoWidth=1" title="三峡水库将迎更大洪水 黄万里之子透露父遗嘱  " alt="三峡水库将迎更大洪水 黄万里之子透露父遗嘱  "></a></p>
 <p><a href="https://github.com/cnijoq354/djy/blob/master/gb/20/7/21/n12271574.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：五位中纪委书记对待法轮功之我见   >-009fcc?logoWidth=1" title="王友群：五位中纪委书记对待法轮功之我见  " alt="王友群：五位中纪委书记对待法轮功之我见  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cnijoq354/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cnijoq354/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cnijoq354/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cnijoq354/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cnijoq354/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cnijoq354/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cnijoq354/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cnijoq354/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/puuuu">git.io/puuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/55555">git.io/55555</a></div>
 

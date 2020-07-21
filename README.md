@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/lsidcq325/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/lsidcq325/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/btttt">git.io/btttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3366">x.co/3366</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/byyyy">git.io/byyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/vaa">x.co/vaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,18 +39,16 @@
 <p><a href="https://github.com/lsidcq325/djy/blob/master/gb/20/7/19/n12267961.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洛杉矶华人：支持美国政府制裁中共党员    >-009fcc?logoWidth=1" title="洛杉矶华人：支持美国政府制裁中共党员  " alt="洛杉矶华人：支持美国政府制裁中共党员  "></a></p>
 <p><a href="https://github.com/lsidcq325/djy/blob/master/gb/20/7/20/n12270600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普“遏止中共”推手余茂春亮相       >-009fcc?logoWidth=1" title="川普“遏止中共”推手余茂春亮相  " alt="川普“遏止中共”推手余茂春亮相  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/21/a102898380.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“量力而行”批习的能力？李克强言论引联想  >-009fcc?logoWidth=1" title="“量力而行”批习的能力？李克强言论引联想  " alt="“量力而行”批习的能力？李克强言论引联想  "></a></p>
-<p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/20/a102897797.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平麻烦缠身 北戴河会议成迷       >-009fcc?logoWidth=1" title="习近平麻烦缠身 北戴河会议成迷  " alt="习近平麻烦缠身 北戴河会议成迷  "></a></p>
-<p><a href="https://github.com/lsidcq325/djy/blob/master/gb/20/7/20/n12268960.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官媒对李克强讲话的报导口径不一     >-009fcc?logoWidth=1" title="中共官媒对李克强讲话的报导口径不一  " alt="中共官媒对李克强讲话的报导口径不一  "></a></p>
-<p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/21/a102898352.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美隔空示威 南海一触即发/官方承认三峡出问>-009fcc?logoWidth=1" title="中美隔空示威 南海一触即发/官方承认三峡出问题 安徽炸堤泄洪  " alt="中美隔空示威 南海一触即发/官方承认三峡出问题 安徽炸堤泄洪  "></a></p>
-<p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/21/a102898378.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪灾困局习不愿“亲自指挥”港警宿舍10人确诊>-009fcc?logoWidth=1" title="洪灾困局习不愿“亲自指挥”港警宿舍10人确诊  " alt="洪灾困局习不愿“亲自指挥”港警宿舍10人确诊  "></a></p>
-<p><a href="https://github.com/lsidcq325/djy/blob/master/gb/20/7/20/n12270218.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不畏加班 不念下班？ 北京一公司标语引争议 >-009fcc?logoWidth=1" title="不畏加班 不念下班？ 北京一公司标语引争议  " alt="不畏加班 不念下班？ 北京一公司标语引争议  "></a></p>
-<p><a href="https://github.com/lsidcq325/djy/blob/master/gb/20/7/20/n12269752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千人婚宴或致乌鲁木齐疫情爆发        >-009fcc?logoWidth=1" title="千人婚宴或致乌鲁木齐疫情爆发  " alt="千人婚宴或致乌鲁木齐疫情爆发  "></a></p>
-<p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/21/a102898477.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共让这些国家成为朋友           >-009fcc?logoWidth=1" title="中共让这些国家成为朋友  " alt="中共让这些国家成为朋友  "></a></p>
+<p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/20/a102898136.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院首度声明:中共必须停止迫害法轮功  >-009fcc?logoWidth=1" title="美国务院首度声明:中共必须停止迫害法轮功  " alt="美国务院首度声明:中共必须停止迫害法轮功  "></a></p>
 <p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/20/a102898139.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：华春莹的“委屈”与胡锡进的“哭腔”  >-009fcc?logoWidth=1" title="袁斌：华春莹的“委屈”与胡锡进的“哭腔”  " alt="袁斌：华春莹的“委屈”与胡锡进的“哭腔”  "></a></p>
+<p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/20/a102898116.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洞庭湖再进入超警戒状态 三峡迎来第三轮洪水 >-009fcc?logoWidth=1" title="洞庭湖再进入超警戒状态 三峡迎来第三轮洪水  " alt="洞庭湖再进入超警戒状态 三峡迎来第三轮洪水  "></a></p>
+<p><a href="https://github.com/lsidcq325/djy/blob/master/gb/20/7/20/n12268960.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官媒对李克强讲话的报导口径不一     >-009fcc?logoWidth=1" title="中共官媒对李克强讲话的报导口径不一  " alt="中共官媒对李克强讲话的报导口径不一  "></a></p>
+<p><a href="https://github.com/lsidcq325/djy/blob/master/gb/20/7/20/n12270218.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不畏加班 不念下班？ 北京一公司标语引争议 >-009fcc?logoWidth=1" title="不畏加班 不念下班？ 北京一公司标语引争议  " alt="不畏加班 不念下班？ 北京一公司标语引争议  "></a></p>
+<p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/21/a102898352.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美隔空示威 南海一触即发/官方承认三峡出问>-009fcc?logoWidth=1" title="中美隔空示威 南海一触即发/官方承认三峡出问题 安徽炸堤泄洪  " alt="中美隔空示威 南海一触即发/官方承认三峡出问题 安徽炸堤泄洪  "></a></p>
+<p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/20/a102897797.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平麻烦缠身 北戴河会议成迷       >-009fcc?logoWidth=1" title="习近平麻烦缠身 北戴河会议成迷  " alt="习近平麻烦缠身 北戴河会议成迷  "></a></p>
+<p><a href="https://github.com/lsidcq325/djy/blob/master/gb/20/7/20/n12269752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千人婚宴或致乌鲁木齐疫情爆发        >-009fcc?logoWidth=1" title="千人婚宴或致乌鲁木齐疫情爆发  " alt="千人婚宴或致乌鲁木齐疫情爆发  "></a></p>
 <p><a href="https://github.com/lsidcq325/djy/blob/master/gb/20/7/20/n12270824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世界最大食品制造商拟再出售部分大陆业务   >-009fcc?logoWidth=1" title="世界最大食品制造商拟再出售部分大陆业务  " alt="世界最大食品制造商拟再出售部分大陆业务  "></a></p>
-<p><a href="https://github.com/lsidcq325/djy/blob/master/gb/20/7/20/n12270445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆零零后少年网发翻墙教程 被公安训诫   >-009fcc?logoWidth=1" title="重庆零零后少年网发翻墙教程 被公安训诫  " alt="重庆零零后少年网发翻墙教程 被公安训诫  "></a></p>
-<p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/20/a102898038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡平：中共对法轮功的污蔑走入穷途末路    >-009fcc?logoWidth=1" title="胡平：中共对法轮功的污蔑走入穷途末路  " alt="胡平：中共对法轮功的污蔑走入穷途末路  "></a></p>
+<p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/21/a102898477.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共让这些国家成为朋友           >-009fcc?logoWidth=1" title="中共让这些国家成为朋友  " alt="中共让这些国家成为朋友  "></a></p>
 <p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/20/a102897708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵：美国制裁中共党员 第一个就是马云  >-009fcc?logoWidth=1" title="郭文贵：美国制裁中共党员 第一个就是马云  " alt="郭文贵：美国制裁中共党员 第一个就是马云  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -489,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/lsidcq325/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lsidcq325/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lsidcq325/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/lsidcq325/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/lsidcq325/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lsidcq325/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lsidcq325/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/lsidcq325/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/btttt">git.io/btttt</a></div>
+<div align="center">短网址: <a href="https://git.io/byyyy">git.io/byyyy</a></div>
 

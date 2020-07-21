@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jurnns391/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jurnns391/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/stttt">git.io/stttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/xdd">x.co/xdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/stttt">git.io/stttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pnp">x.co/pnp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,17 +39,16 @@
 <p><a href="https://github.com/jurnns391/djy/blob/master/gb/20/7/19/n12267961.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洛杉矶华人：支持美国政府制裁中共党员    >-009fcc?logoWidth=1" title="洛杉矶华人：支持美国政府制裁中共党员  " alt="洛杉矶华人：支持美国政府制裁中共党员  "></a></p>
 <p><a href="https://github.com/jurnns391/djy/blob/master/gb/20/7/20/n12270600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普“遏止中共”推手余茂春亮相       >-009fcc?logoWidth=1" title="川普“遏止中共”推手余茂春亮相  " alt="川普“遏止中共”推手余茂春亮相  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/21/a102898701.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江河湖水患齐发 网评：不是天灾 是谋杀   >-009fcc?logoWidth=1" title="江河湖水患齐发 网评：不是天灾 是谋杀  " alt="江河湖水患齐发 网评：不是天灾 是谋杀  "></a></p>
 <p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/21/a102898313.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共末日逃生计划一夜夭折 中共洗多少钱到海外>-009fcc?logoWidth=1" title="中共末日逃生计划一夜夭折 中共洗多少钱到海外  " alt="中共末日逃生计划一夜夭折 中共洗多少钱到海外  "></a></p>
-<p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/20/a102898301.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：拼了？习夺曾庆红家产/核研究所近百科学>-009fcc?logoWidth=1" title="文昭：拼了？习夺曾庆红家产/核研究所近百科学家辞职有内幕  " alt="文昭：拼了？习夺曾庆红家产/核研究所近百科学家辞职有内幕  "></a></p>
-<p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/20/a102898116.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洞庭湖再进入超警戒状态 三峡迎来第三轮洪水 >-009fcc?logoWidth=1" title="洞庭湖再进入超警戒状态 三峡迎来第三轮洪水  " alt="洞庭湖再进入超警戒状态 三峡迎来第三轮洪水  "></a></p>
 <p><a href="https://github.com/jurnns391/djy/blob/master/gb/20/7/21/n12271183.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反迫害周年日 美国务院官员会见法轮功学员  >-009fcc?logoWidth=1" title="反迫害周年日 美国务院官员会见法轮功学员  " alt="反迫害周年日 美国务院官员会见法轮功学员  "></a></p>
 <p><a href="https://github.com/jurnns391/djy/blob/master/gb/20/7/20/n12268960.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官媒对李克强讲话的报导口径不一     >-009fcc?logoWidth=1" title="中共官媒对李克强讲话的报导口径不一  " alt="中共官媒对李克强讲话的报导口径不一  "></a></p>
-<p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/20/a102898139.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：华春莹的“委屈”与胡锡进的“哭腔”  >-009fcc?logoWidth=1" title="袁斌：华春莹的“委屈”与胡锡进的“哭腔”  " alt="袁斌：华春莹的“委屈”与胡锡进的“哭腔”  "></a></p>
-<p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/20/a102897708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵：美国制裁中共党员 第一个就是马云  >-009fcc?logoWidth=1" title="郭文贵：美国制裁中共党员 第一个就是马云  " alt="郭文贵：美国制裁中共党员 第一个就是马云  "></a></p>
+<p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/21/a102898546.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/秦鹏：约翰逊拉开制裁大幕 蓬佩奥预点中共死穴>-009fcc?logoWidth=1" title="秦鹏：约翰逊拉开制裁大幕 蓬佩奥预点中共死穴  " alt="秦鹏：约翰逊拉开制裁大幕 蓬佩奥预点中共死穴  "></a></p>
+<p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/20/a102898301.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：拼了？习夺曾庆红家产/核研究所近百科学>-009fcc?logoWidth=1" title="文昭：拼了？习夺曾庆红家产/核研究所近百科学家辞职有内幕  " alt="文昭：拼了？习夺曾庆红家产/核研究所近百科学家辞职有内幕  "></a></p>
 <p><a href="https://github.com/jurnns391/djy/blob/master/gb/20/7/20/n12270827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美宗教大使发推：法轮功坚忍不屈给我启迪   >-009fcc?logoWidth=1" title="美宗教大使发推：法轮功坚忍不屈给我启迪  " alt="美宗教大使发推：法轮功坚忍不屈给我启迪  "></a></p>
 <p><a href="https://github.com/jurnns391/djy/blob/master/gb/20/7/20/n12269752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千人婚宴或致乌鲁木齐疫情爆发        >-009fcc?logoWidth=1" title="千人婚宴或致乌鲁木齐疫情爆发  " alt="千人婚宴或致乌鲁木齐疫情爆发  "></a></p>
-<p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/21/a102898565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安徽上游水库溃坝 固镇成孤岛 万人被水围困 >-009fcc?logoWidth=1" title="安徽上游水库溃坝 固镇成孤岛 万人被水围困  " alt="安徽上游水库溃坝 固镇成孤岛 万人被水围困  "></a></p>
-<p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/20/a102898173.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普对中共政策重要华人高参 曾经历文革为六四>-009fcc?logoWidth=1" title="川普对中共政策重要华人高参 曾经历文革为六四发声  " alt="川普对中共政策重要华人高参 曾经历文革为六四发声  "></a></p>
+<p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/20/a102898139.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：华春莹的“委屈”与胡锡进的“哭腔”  >-009fcc?logoWidth=1" title="袁斌：华春莹的“委屈”与胡锡进的“哭腔”  " alt="袁斌：华春莹的“委屈”与胡锡进的“哭腔”  "></a></p>
+<p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/20/a102897708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵：美国制裁中共党员 第一个就是马云  >-009fcc?logoWidth=1" title="郭文贵：美国制裁中共党员 第一个就是马云  " alt="郭文贵：美国制裁中共党员 第一个就是马云  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/jurnns391/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jurnns391/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jurnns391/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jurnns391/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jurnns391/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/jurnns391/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jurnns391/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jurnns391/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jurnns391/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jurnns391/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
 <div align="center">短网址: <a href="https://git.io/stttt">git.io/stttt</a></div>
 

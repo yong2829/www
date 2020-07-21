@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/lsidcq325/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/lsidcq325/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qbbbb">git.io/qbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/iaa">x.co/iaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iqqqq">git.io/iqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aau">x.co/aau</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/20/a102897797.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平麻烦缠身 北戴河会议成迷       >-009fcc?logoWidth=1" title="习近平麻烦缠身 北戴河会议成迷  " alt="习近平麻烦缠身 北戴河会议成迷  "></a></p>
 <p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/20/a102897726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国防部长：中共有野心 是美国首要战略对手 >-009fcc?logoWidth=1" title="美国防部长：中共有野心 是美国首要战略对手  " alt="美国防部长：中共有野心 是美国首要战略对手  "></a></p>
 <p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/20/a102897684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强再戳“中国梦”：做什么事要量力而行  >-009fcc?logoWidth=1" title="李克强再戳“中国梦”：做什么事要量力而行  " alt="李克强再戳“中国梦”：做什么事要量力而行  "></a></p>
+<p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/21/a102898444.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴西染疫病故破8万人 再有两部长确诊隔离  >-009fcc?logoWidth=1" title="巴西染疫病故破8万人 再有两部长确诊隔离  " alt="巴西染疫病故破8万人 再有两部长确诊隔离  "></a></p>
 <p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/21/a102898380.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“量力而行”批习的能力？李克强言论引联想  >-009fcc?logoWidth=1" title="“量力而行”批习的能力？李克强言论引联想  " alt="“量力而行”批习的能力？李克强言论引联想  "></a></p>
 <p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/21/a102898341.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/单日住院逾2千人 洛县感染者年龄层下降   >-009fcc?logoWidth=1" title="单日住院逾2千人 洛县感染者年龄层下降  " alt="单日住院逾2千人 洛县感染者年龄层下降  "></a></p>
 <p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/21/a102898326.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约又一地标重开 自由女神像又见游客    >-009fcc?logoWidth=1" title="纽约又一地标重开 自由女神像又见游客  " alt="纽约又一地标重开 自由女神像又见游客  "></a></p>
 <p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港演艺圈爆群聚感染 全球逾60万丧生   >-009fcc?logoWidth=1" title="香港演艺圈爆群聚感染 全球逾60万丧生  " alt="香港演艺圈爆群聚感染 全球逾60万丧生  "></a></p>
-<p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/20/a102898291.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最终难逃牢狱 前纽约州众议长萧华获刑六年半 >-009fcc?logoWidth=1" title="最终难逃牢狱 前纽约州众议长萧华获刑六年半  " alt="最终难逃牢狱 前纽约州众议长萧华获刑六年半  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/lsidcq325/djy/blob/master/gb/20/7/20/n12269783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡水库将迎更大洪水 黄万里之子透露父遗嘱 >-009fcc?logoWidth=1" title="三峡水库将迎更大洪水 黄万里之子透露父遗嘱  " alt="三峡水库将迎更大洪水 黄万里之子透露父遗嘱  "></a></p>
 <p><a href="https://github.com/lsidcq325/djy/blob/master/gb/20/7/20/n12270304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国无限期立停香港引渡条约 祭武器禁运   >-009fcc?logoWidth=1" title="英国无限期立停香港引渡条约 祭武器禁运  " alt="英国无限期立停香港引渡条约 祭武器禁运  "></a></p>
@@ -39,15 +39,15 @@
 <p><a href="https://github.com/lsidcq325/djy/blob/master/gb/20/7/20/n12270600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普“遏止中共”推手余茂春亮相       >-009fcc?logoWidth=1" title="川普“遏止中共”推手余茂春亮相  " alt="川普“遏止中共”推手余茂春亮相  "></a></p>
 <p><a href="https://github.com/lsidcq325/djy/blob/master/gb/20/7/20/n12268960.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官媒对李克强讲话的报导口径不一     >-009fcc?logoWidth=1" title="中共官媒对李克强讲话的报导口径不一  " alt="中共官媒对李克强讲话的报导口径不一  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/20/a102898150.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡水位刷新记录 官方数据现“魔幻涨落”  >-009fcc?logoWidth=1" title="三峡水位刷新记录 官方数据现“魔幻涨落”  " alt="三峡水位刷新记录 官方数据现“魔幻涨落”  "></a></p>
 <p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/20/a102897961.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反对迫害法轮功 全球365万人促法办江泽民 >-009fcc?logoWidth=1" title="反对迫害法轮功 全球365万人促法办江泽民  " alt="反对迫害法轮功 全球365万人促法办江泽民  "></a></p>
 <p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/20/a102898007.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江洪水水位又飙新高 滁河炸堤泄洪（视频） >-009fcc?logoWidth=1" title="长江洪水水位又飙新高 滁河炸堤泄洪（视频）  " alt="长江洪水水位又飙新高 滁河炸堤泄洪（视频）  "></a></p>
 <p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/20/a102898038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡平：中共对法轮功的污蔑走入穷途末路    >-009fcc?logoWidth=1" title="胡平：中共对法轮功的污蔑走入穷途末路  " alt="胡平：中共对法轮功的污蔑走入穷途末路  "></a></p>
 <p><a href="https://github.com/lsidcq325/djy/blob/master/gb/20/7/20/n12270218.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不畏加班 不念下班？ 北京一公司标语引争议 >-009fcc?logoWidth=1" title="不畏加班 不念下班？ 北京一公司标语引争议  " alt="不畏加班 不念下班？ 北京一公司标语引争议  "></a></p>
 <p><a href="https://github.com/lsidcq325/djy/blob/master/gb/20/7/20/n12269752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千人婚宴或致乌鲁木齐疫情爆发        >-009fcc?logoWidth=1" title="千人婚宴或致乌鲁木齐疫情爆发  " alt="千人婚宴或致乌鲁木齐疫情爆发  "></a></p>
-<p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/20/a102897708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵：美国制裁中共党员 第一个就是马云  >-009fcc?logoWidth=1" title="郭文贵：美国制裁中共党员 第一个就是马云  " alt="郭文贵：美国制裁中共党员 第一个就是马云  "></a></p>
 <p><a href="https://github.com/lsidcq325/djy/blob/master/gb/20/7/20/n12270824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世界最大食品制造商拟再出售部分大陆业务   >-009fcc?logoWidth=1" title="世界最大食品制造商拟再出售部分大陆业务  " alt="世界最大食品制造商拟再出售部分大陆业务  "></a></p>
 <p><a href="https://github.com/lsidcq325/djy/blob/master/gb/20/7/20/n12270445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆零零后少年网发翻墙教程 被公安训诫   >-009fcc?logoWidth=1" title="重庆零零后少年网发翻墙教程 被公安训诫  " alt="重庆零零后少年网发翻墙教程 被公安训诫  "></a></p>
-<p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/20/a102897604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/风水师：中国土龙逃走 四大危机齐来     >-009fcc?logoWidth=1" title="风水师：中国土龙逃走 四大危机齐来  " alt="风水师：中国土龙逃走 四大危机齐来  "></a></p>
+<p><a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/2020/07/20/a102897708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵：美国制裁中共党员 第一个就是马云  >-009fcc?logoWidth=1" title="郭文贵：美国制裁中共党员 第一个就是马云  " alt="郭文贵：美国制裁中共党员 第一个就是马云  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/lsidcq325/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lsidcq325/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lsidcq325/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/lsidcq325/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/lsidcq325/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lsidcq325/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lsidcq325/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lsidcq325/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/lsidcq325/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qbbbb">git.io/qbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/iqqqq">git.io/iqqqq</a></div>
 

@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cnijoq354/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cnijoq354/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/issss">git.io/issss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aad">x.co/aad</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aaaaaaaa">git.io/aaaaaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pqp">x.co/pqp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102898491.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平外交思想研究中心成立 网民笑翻：是得研>-009fcc?logoWidth=1" title="习近平外交思想研究中心成立 网民笑翻：是得研究  " alt="习近平外交思想研究中心成立 网民笑翻：是得研究  "></a></p>
 <p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102898479.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议不开了？习麻烦缠身 传元老想和他谈>-009fcc?logoWidth=1" title="北戴河会议不开了？习麻烦缠身 传元老想和他谈谈  " alt="北戴河会议不开了？习麻烦缠身 传元老想和他谈谈  "></a></p>
 <p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102898434.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海内斗不寻常 习近平神秘隐身 抛出一句话>-009fcc?logoWidth=1" title="中南海内斗不寻常 习近平神秘隐身 抛出一句话  " alt="中南海内斗不寻常 习近平神秘隐身 抛出一句话  "></a></p>
+<p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102899024.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江第三波洪峰即将形成  黄河淮河也齐发警报>-009fcc?logoWidth=1" title="长江第三波洪峰即将形成  黄河淮河也齐发警报  " alt="长江第三波洪峰即将形成  黄河淮河也齐发警报  "></a></p>
+<p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102898995.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网民揭中国奶业6大罪状被抓  数千万人发帖声>-009fcc?logoWidth=1" title="网民揭中国奶业6大罪状被抓  数千万人发帖声援  " alt="网民揭中国奶业6大罪状被抓  数千万人发帖声援  "></a></p>
+<p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102898980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农：川普定下“四骑士”计划击垮中共 分两步>-009fcc?logoWidth=1" title="班农：川普定下“四骑士”计划击垮中共 分两步走  " alt="班农：川普定下“四骑士”计划击垮中共 分两步走  "></a></p>
 <p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102898947.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/计划经济征兆？习近平倡形成国内大循环主体格局>-009fcc?logoWidth=1" title="计划经济征兆？习近平倡形成国内大循环主体格局  " alt="计划经济征兆？习近平倡形成国内大循环主体格局  "></a></p>
 <p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102898936.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院官员公开会见法轮功学员       >-009fcc?logoWidth=1" title="美国务院官员公开会见法轮功学员  " alt="美国务院官员公开会见法轮功学员  "></a></p>
-<p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102898882.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美众院通过法案 禁联邦雇员在政府设备使用Ti>-009fcc?logoWidth=1" title="美众院通过法案 禁联邦雇员在政府设备使用TikTok  " alt="美众院通过法案 禁联邦雇员在政府设备使用TikTok  "></a></p>
-<p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102898916.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美高层区分中国与中共 北京罕见回应显焦虑  >-009fcc?logoWidth=1" title="美高层区分中国与中共 北京罕见回应显焦虑  " alt="美高层区分中国与中共 北京罕见回应显焦虑  "></a></p>
-<p><a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/2020/07/21/a102898844.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫发言人7.21媒体简报会（中文同声翻译）>-009fcc?logoWidth=1" title="白宫发言人7.21媒体简报会（中文同声翻译）  " alt="白宫发言人7.21媒体简报会（中文同声翻译）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/cnijoq354/djy/blob/master/gb/20/7/20/n12269783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡水库将迎更大洪水 黄万里之子透露父遗嘱 >-009fcc?logoWidth=1" title="三峡水库将迎更大洪水 黄万里之子透露父遗嘱  " alt="三峡水库将迎更大洪水 黄万里之子透露父遗嘱  "></a></p>
 <p><a href="https://github.com/cnijoq354/djy/blob/master/gb/20/7/21/n12271574.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：五位中纪委书记对待法轮功之我见   >-009fcc?logoWidth=1" title="王友群：五位中纪委书记对待法轮功之我见  " alt="王友群：五位中纪委书记对待法轮功之我见  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cnijoq354/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cnijoq354/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cnijoq354/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cnijoq354/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cnijoq354/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cnijoq354/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cnijoq354/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cnijoq354/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cnijoq354/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/issss">git.io/issss</a></div>
+<div align="center">短网址: <a href="https://git.io/aaaaaaaa">git.io/aaaaaaaa</a></div>
 

@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jurnns391/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jurnns391/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aqqqq">git.io/aqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3777">x.co/3777</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rssss">git.io/rssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppi">x.co/ppi</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -23,8 +23,8 @@
 <p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/21/a102898491.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平外交思想研究中心成立 网民笑翻：是得研>-009fcc?logoWidth=1" title="习近平外交思想研究中心成立 网民笑翻：是得研究  " alt="习近平外交思想研究中心成立 网民笑翻：是得研究  "></a></p>
 <p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/21/a102898487.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/解禁一个月 西班牙出现约201处群聚感染  >-009fcc?logoWidth=1" title="解禁一个月 西班牙出现约201处群聚感染  " alt="解禁一个月 西班牙出现约201处群聚感染  "></a></p>
 <p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/21/a102898471.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵锦荣：港人启发世界 国际清醒掀反共潮   >-009fcc?logoWidth=1" title="赵锦荣：港人启发世界 国际清醒掀反共潮  " alt="赵锦荣：港人启发世界 国际清醒掀反共潮  "></a></p>
+<p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/21/a102898477.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共让这些国家成为朋友           >-009fcc?logoWidth=1" title="中共让这些国家成为朋友  " alt="中共让这些国家成为朋友  "></a></p>
 <p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/21/a102898468.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/侵犯新疆人权 美商务部再制裁11家中企   >-009fcc?logoWidth=1" title="侵犯新疆人权 美商务部再制裁11家中企  " alt="侵犯新疆人权 美商务部再制裁11家中企  "></a></p>
-<p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/21/a102898444.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴西染疫病故破8万人 再有两部长确诊隔离  >-009fcc?logoWidth=1" title="巴西染疫病故破8万人 再有两部长确诊隔离  " alt="巴西染疫病故破8万人 再有两部长确诊隔离  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jurnns391/djy/blob/master/gb/20/7/20/n12269783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡水库将迎更大洪水 黄万里之子透露父遗嘱 >-009fcc?logoWidth=1" title="三峡水库将迎更大洪水 黄万里之子透露父遗嘱  " alt="三峡水库将迎更大洪水 黄万里之子透露父遗嘱  "></a></p>
 <p><a href="https://github.com/jurnns391/djy/blob/master/gb/20/7/20/n12270304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国无限期立停香港引渡条约 祭武器禁运   >-009fcc?logoWidth=1" title="英国无限期立停香港引渡条约 祭武器禁运  " alt="英国无限期立停香港引渡条约 祭武器禁运  "></a></p>
@@ -48,7 +48,6 @@
 <p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/20/a102897797.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平麻烦缠身 北戴河会议成迷       >-009fcc?logoWidth=1" title="习近平麻烦缠身 北戴河会议成迷  " alt="习近平麻烦缠身 北戴河会议成迷  "></a></p>
 <p><a href="https://github.com/jurnns391/djy/blob/master/gb/20/7/20/n12270827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美宗教大使发推：法轮功坚忍不屈给我启迪   >-009fcc?logoWidth=1" title="美宗教大使发推：法轮功坚忍不屈给我启迪  " alt="美宗教大使发推：法轮功坚忍不屈给我启迪  "></a></p>
 <p><a href="https://github.com/jurnns391/djy/blob/master/gb/20/7/20/n12269752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千人婚宴或致乌鲁木齐疫情爆发        >-009fcc?logoWidth=1" title="千人婚宴或致乌鲁木齐疫情爆发  " alt="千人婚宴或致乌鲁木齐疫情爆发  "></a></p>
-<p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/21/a102898477.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共让这些国家成为朋友           >-009fcc?logoWidth=1" title="中共让这些国家成为朋友  " alt="中共让这些国家成为朋友  "></a></p>
 <p><a href="https://github.com/jurnns391/ntdtv/blob/master/gb/2020/07/20/a102897708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵：美国制裁中共党员 第一个就是马云  >-009fcc?logoWidth=1" title="郭文贵：美国制裁中共党员 第一个就是马云  " alt="郭文贵：美国制裁中共党员 第一个就是马云  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/jurnns391/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jurnns391/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jurnns391/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jurnns391/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jurnns391/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/jurnns391/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jurnns391/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jurnns391/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jurnns391/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jurnns391/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/aqqqq">git.io/aqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/rssss">git.io/rssss</a></div>
 

@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ktbrqc3336/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ktbrqc3336/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d8888">git.io/d8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa5">x.co/aa5</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kiiii">git.io/kiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pgp">x.co/pgp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,6 +20,7 @@
 <p><a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/2020/07/22/a102899424.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜大饥荒 金正恩下令吃乌龟肉和减肥药   >-009fcc?logoWidth=1" title="朝鲜大饥荒 金正恩下令吃乌龟肉和减肥药  " alt="朝鲜大饥荒 金正恩下令吃乌龟肉和减肥药  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/2020/07/22/a102899370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：7.21港人重现元朗抗争 警方拘捕多人>-009fcc?logoWidth=1" title="组图：7.21港人重现元朗抗争 警方拘捕多人  " alt="组图：7.21港人重现元朗抗争 警方拘捕多人  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/2020/07/22/a102899356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/防北戴河会议惹事？ 习突袭曾庆红“钱袋子” >-009fcc?logoWidth=1" title="防北戴河会议惹事？ 习突袭曾庆红“钱袋子”  " alt="防北戴河会议惹事？ 习突袭曾庆红“钱袋子”  "></a></p>
+<p><a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/2020/07/22/a102899651.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国国际宗教自由听证会：中共对宗教的技术监控>-009fcc?logoWidth=1" title="美国国际宗教自由听证会：中共对宗教的技术监控（同声翻译）  " alt="美国国际宗教自由听证会：中共对宗教的技术监控（同声翻译）  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/2020/07/22/a102899595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国数千访民连署 吁解决信访积案      >-009fcc?logoWidth=1" title="中国数千访民连署 吁解决信访积案  " alt="中国数千访民连署 吁解决信访积案  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强不慎滑倒视频热传 党媒罕见低调    >-009fcc?logoWidth=1" title="李克强不慎滑倒视频热传 党媒罕见低调  " alt="李克强不慎滑倒视频热传 党媒罕见低调  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/2020/07/22/a102899569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/埃塞俄比亚货运飞机 在上海浦东机场起火燃烧 >-009fcc?logoWidth=1" title="埃塞俄比亚货运飞机 在上海浦东机场起火燃烧  " alt="埃塞俄比亚货运飞机 在上海浦东机场起火燃烧  "></a></p>
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ktbrqc3336/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ktbrqc3336/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ktbrqc3336/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ktbrqc3336/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ktbrqc3336/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ktbrqc3336/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/d8888">git.io/d8888</a></div>
+<div align="center">短网址: <a href="https://git.io/kiiii">git.io/kiiii</a></div>
 

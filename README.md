@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tdsyip367/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tdsyip367/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/naaaa">git.io/naaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/jpp">x.co/jpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/s9999">git.io/s9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/mpp">x.co/mpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898606.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/水漫千年古庙 港演艺圈群聚感染       >-009fcc?logoWidth=1" title="水漫千年古庙 港演艺圈群聚感染  " alt="水漫千年古庙 港演艺圈群聚感染  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898491.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平外交思想研究中心成立 网民笑翻：是得研>-009fcc?logoWidth=1" title="习近平外交思想研究中心成立 网民笑翻：是得研究  " alt="习近平外交思想研究中心成立 网民笑翻：是得研究  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898479.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议不开了？习麻烦缠身 传元老想和他谈>-009fcc?logoWidth=1" title="北戴河会议不开了？习麻烦缠身 传元老想和他谈谈  " alt="北戴河会议不开了？习麻烦缠身 传元老想和他谈谈  "></a></p>
+<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/直播新闻突掉门牙 女主播淡定接住获热赞   >-009fcc?logoWidth=1" title="直播新闻突掉门牙 女主播淡定接住获热赞  " alt="直播新闻突掉门牙 女主播淡定接住获热赞  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102899106.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/侵犯新疆人权 11家中企被美商务部制裁   >-009fcc?logoWidth=1" title="侵犯新疆人权 11家中企被美商务部制裁  " alt="侵犯新疆人权 11家中企被美商务部制裁  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华人回国更难！中共要求登机需要核酸检查   >-009fcc?logoWidth=1" title="华人回国更难！中共要求登机需要核酸检查  " alt="华人回国更难！中共要求登机需要核酸检查  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898693.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民主党觊觎川普财务记录 最高法院拒绝    >-009fcc?logoWidth=1" title="民主党觊觎川普财务记录 最高法院拒绝  " alt="民主党觊觎川普财务记录 最高法院拒绝  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102899193.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/青海前政协委员王瑞琴：民企痛恨中共体制（2）>-009fcc?logoWidth=1" title="青海前政协委员王瑞琴：民企痛恨中共体制（2）  " alt="青海前政协委员王瑞琴：民企痛恨中共体制（2）  "></a></p>
-<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102899051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华人回国更难！中共统一要求登机需要核酸检查 >-009fcc?logoWidth=1" title="华人回国更难！中共统一要求登机需要核酸检查  " alt="华人回国更难！中共统一要求登机需要核酸检查  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12272533.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/明天系公然叫板当局 中共高层内斗激烈    >-009fcc?logoWidth=1" title="明天系公然叫板当局 中共高层内斗激烈  " alt="明天系公然叫板当局 中共高层内斗激烈  "></a></p>
 <p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12272606.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美众议院表决通过 更大范围禁用TikTok >-009fcc?logoWidth=1" title="美众议院表决通过 更大范围禁用TikTok  " alt="美众议院表决通过 更大范围禁用TikTok  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tdsyip367/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tdsyip367/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tdsyip367/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tdsyip367/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tdsyip367/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tdsyip367/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tdsyip367/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tdsyip367/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/naaaa">git.io/naaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/s9999">git.io/s9999</a></div>
 

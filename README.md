@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tdsyip367/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tdsyip367/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qkkkk">git.io/qkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppn">x.co/ppn</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rqqqq">git.io/rqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/7aa">x.co/7aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/22/a102899325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强不慎滑倒视频热传 党媒罕见低调(视频)>-009fcc?logoWidth=1" title="李克强不慎滑倒视频热传 党媒罕见低调(视频)  " alt="李克强不慎滑倒视频热传 党媒罕见低调(视频)  "></a></p>
+<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/22/a102899310.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平露面谈“爱国” 与李克强各说各话   >-009fcc?logoWidth=1" title="习近平露面谈“爱国” 与李克强各说各话  " alt="习近平露面谈“爱国” 与李克强各说各话  "></a></p>
+<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/22/a102899253.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:危机中夺权 习近平“座谈会”奇袭李克强>-009fcc?logoWidth=1" title="文昭:危机中夺权 习近平“座谈会”奇袭李克强  " alt="文昭:危机中夺权 习近平“座谈会”奇袭李克强  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农：川普定下“四骑士”计划击垮中共 分两步>-009fcc?logoWidth=1" title="班农：川普定下“四骑士”计划击垮中共 分两步走  " alt="班农：川普定下“四骑士”计划击垮中共 分两步走  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898720.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平抄曾庆红“家”/北戴河会不开了？   >-009fcc?logoWidth=1" title="习近平抄曾庆红“家”/北戴河会不开了？  " alt="习近平抄曾庆红“家”/北戴河会不开了？  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平抄曾庆红“家” 引发高层又一轮混战  >-009fcc?logoWidth=1" title="习近平抄曾庆红“家” 引发高层又一轮混战  " alt="习近平抄曾庆红“家” 引发高层又一轮混战  "></a></p>
-<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898606.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/水漫千年古庙 港演艺圈群聚感染       >-009fcc?logoWidth=1" title="水漫千年古庙 港演艺圈群聚感染  " alt="水漫千年古庙 港演艺圈群聚感染  "></a></p>
-<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898491.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平外交思想研究中心成立 网民笑翻：是得研>-009fcc?logoWidth=1" title="习近平外交思想研究中心成立 网民笑翻：是得研究  " alt="习近平外交思想研究中心成立 网民笑翻：是得研究  "></a></p>
-<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898479.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议不开了？习麻烦缠身 传元老想和他谈>-009fcc?logoWidth=1" title="北戴河会议不开了？习麻烦缠身 传元老想和他谈谈  " alt="北戴河会议不开了？习麻烦缠身 传元老想和他谈谈  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/22/a102899288.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罗家聪：中共缺钱 向港征税机会大      >-009fcc?logoWidth=1" title="罗家聪：中共缺钱 向港征税机会大  " alt="罗家聪：中共缺钱 向港征税机会大  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/22/a102899284.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夫妇枪指家门外示威者被控重罪 州司法部长驳回>-009fcc?logoWidth=1" title="夫妇枪指家门外示威者被控重罪 州司法部长驳回政治起诉  " alt="夫妇枪指家门外示威者被控重罪 州司法部长驳回政治起诉  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/直播新闻突掉门牙 女主播淡定接住获热赞   >-009fcc?logoWidth=1" title="直播新闻突掉门牙 女主播淡定接住获热赞  " alt="直播新闻突掉门牙 女主播淡定接住获热赞  "></a></p>
@@ -489,7 +489,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/tdsyip367/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tdsyip367/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tdsyip367/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tdsyip367/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tdsyip367/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tdsyip367/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qkkkk">git.io/qkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/rqqqq">git.io/rqqqq</a></div>
 

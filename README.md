@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tdsyip367/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tdsyip367/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dzzzz">git.io/dzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/raa">x.co/raa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k8888">git.io/k8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,7 +39,7 @@
 <p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/20/n12270329.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南涝北旱加虫灾 中国粮食供应将如何？（上） >-009fcc?logoWidth=1" title="南涝北旱加虫灾 中国粮食供应将如何？（上）  " alt="南涝北旱加虫灾 中国粮食供应将如何？（上）  "></a></p>
 <p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12272983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙大学生犯强奸罪被留校察看 群情激愤    >-009fcc?logoWidth=1" title="浙大学生犯强奸罪被留校察看 群情激愤  " alt="浙大学生犯强奸罪被留校察看 群情激愤  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/22/a102899253.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:危机中夺权 习近平“座谈会”奇袭李克强>-009fcc?logoWidth=1" title="文昭:危机中夺权 习近平“座谈会”奇袭李克强  " alt="文昭:危机中夺权 习近平“座谈会”奇袭李克强  "></a></p>
+<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102899180.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/封杀中共成员第一案？军方学者涉签证欺诈面临重>-009fcc?logoWidth=1" title="封杀中共成员第一案？军方学者涉签证欺诈面临重刑  " alt="封杀中共成员第一案？军方学者涉签证欺诈面临重刑  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102899077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安徽王家坝泄洪淹20万人 官称民“自愿牺牲”>-009fcc?logoWidth=1" title="安徽王家坝泄洪淹20万人 官称民“自愿牺牲”  " alt="安徽王家坝泄洪淹20万人 官称民“自愿牺牲”  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海新市长龚正上任 传是刘鹤妹夫      >-009fcc?logoWidth=1" title="上海新市长龚正上任 传是刘鹤妹夫  " alt="上海新市长龚正上任 传是刘鹤妹夫  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国近百核专家集体出走 惊动国务院介入调查 >-009fcc?logoWidth=1" title="中国近百核专家集体出走 惊动国务院介入调查  " alt="中国近百核专家集体出走 惊动国务院介入调查  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tdsyip367/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tdsyip367/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tdsyip367/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tdsyip367/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tdsyip367/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tdsyip367/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tdsyip367/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tdsyip367/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dzzzz">git.io/dzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/k8888">git.io/k8888</a></div>
 

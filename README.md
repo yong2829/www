@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ktbrqc3336/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ktbrqc3336/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/n9999">git.io/n9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/xpp">x.co/xpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dddddd">git.io/dddddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/mdd">x.co/mdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,7 +26,7 @@
 <p><a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/2020/07/22/a102899688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥中国政策顾问 华裔学者余茂春亮相   >-009fcc?logoWidth=1" title="蓬佩奥中国政策顾问 华裔学者余茂春亮相  " alt="蓬佩奥中国政策顾问 华裔学者余茂春亮相  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/2020/07/22/a102899651.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国国际宗教自由听证会：中共对宗教的技术监控>-009fcc?logoWidth=1" title="美国国际宗教自由听证会：中共对宗教的技术监控（同声翻译）  " alt="美国国际宗教自由听证会：中共对宗教的技术监控（同声翻译）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/20/7/22/n12274883.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美驱逐休斯顿中领馆“间谍活动猖獗”     >-009fcc?logoWidth=1" title="美驱逐休斯顿中领馆“间谍活动猖獗”  " alt="美驱逐休斯顿中领馆“间谍活动猖獗”  "></a></p>
+<p><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/20/7/22/n12274883.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美关闭休斯顿中领馆“间谍活动猖獗”     >-009fcc?logoWidth=1" title="美关闭休斯顿中领馆“间谍活动猖獗”  " alt="美关闭休斯顿中领馆“间谍活动猖獗”  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/20/7/21/n12272533.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/明天系公然叫板当局 中共高层内斗激烈    >-009fcc?logoWidth=1" title="明天系公然叫板当局 中共高层内斗激烈  " alt="明天系公然叫板当局 中共高层内斗激烈  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/20/7/22/n12274094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢田：六大准备折射中共六大危机       >-009fcc?logoWidth=1" title="谢田：六大准备折射中共六大危机  " alt="谢田：六大准备折射中共六大危机  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/20/7/22/n12273964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡有内伤 关注720的三个理由      >-009fcc?logoWidth=1" title="三峡有内伤 关注720的三个理由  " alt="三峡有内伤 关注720的三个理由  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ktbrqc3336/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ktbrqc3336/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ktbrqc3336/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ktbrqc3336/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ktbrqc3336/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ktbrqc3336/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/n9999">git.io/n9999</a></div>
+<div align="center">短网址: <a href="https://git.io/dddddd">git.io/dddddd</a></div>
 

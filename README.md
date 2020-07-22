@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ktbrqc3336/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ktbrqc3336/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hmmmm">git.io/hmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pxp">x.co/pxp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mnnnn">git.io/mnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3332">x.co/3332</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,23 +27,23 @@
 <p><a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/2020/07/22/a102899771.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安徽湖北江西多地被淹 洪峰北上河南     >-009fcc?logoWidth=1" title="安徽湖北江西多地被淹 洪峰北上河南  " alt="安徽湖北江西多地被淹 洪峰北上河南  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/20/7/22/n12274883.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美关闭休斯顿中领馆“间谍活动猖獗”     >-009fcc?logoWidth=1" title="美关闭休斯顿中领馆“间谍活动猖獗”  " alt="美关闭休斯顿中领馆“间谍活动猖獗”  "></a></p>
-<p><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/20/7/21/n12272533.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/明天系公然叫板当局 中共高层内斗激烈    >-009fcc?logoWidth=1" title="明天系公然叫板当局 中共高层内斗激烈  " alt="明天系公然叫板当局 中共高层内斗激烈  "></a></p>
+<p><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/20/7/22/n12276072.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美关中领馆 中共为何要留学生“保持警觉”  >-009fcc?logoWidth=1" title="美关中领馆 中共为何要留学生“保持警觉”  " alt="美关中领馆 中共为何要留学生“保持警觉”  "></a></p>
+<p><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/20/7/22/n12275724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/火烧文件 休斯顿中领馆最急于销毁什么    >-009fcc?logoWidth=1" title="火烧文件 休斯顿中领馆最急于销毁什么  " alt="火烧文件 休斯顿中领馆最急于销毁什么  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/20/7/22/n12274094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢田：六大准备折射中共六大危机       >-009fcc?logoWidth=1" title="谢田：六大准备折射中共六大危机  " alt="谢田：六大准备折射中共六大危机  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/20/7/22/n12273964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡有内伤 关注720的三个理由      >-009fcc?logoWidth=1" title="三峡有内伤 关注720的三个理由  " alt="三峡有内伤 关注720的三个理由  "></a></p>
-<p><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/20/7/21/n12273142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美起诉两中国骇客 点名中共国安部操控    >-009fcc?logoWidth=1" title="美起诉两中国骇客 点名中共国安部操控  " alt="美起诉两中国骇客 点名中共国安部操控  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/20/7/22/n12273841.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川习初相识：川普总让中共恼火        >-009fcc?logoWidth=1" title="川习初相识：川普总让中共恼火  " alt="川习初相识：川普总让中共恼火  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/20/7/22/n12274582.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：中共发言人和胡锡进透露了党的恐惧   >-009fcc?logoWidth=1" title="田云：中共发言人和胡锡进透露了党的恐惧  " alt="田云：中共发言人和胡锡进透露了党的恐惧  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/20/7/21/n12271574.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：五位中纪委书记对待法轮功之我见   >-009fcc?logoWidth=1" title="王友群：五位中纪委书记对待法轮功之我见  " alt="王友群：五位中纪委书记对待法轮功之我见  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/20/7/22/n12274329.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/隐身两周后习露面 要企业家“爱国”的背后  >-009fcc?logoWidth=1" title="隐身两周后习露面 要企业家“爱国”的背后  " alt="隐身两周后习露面 要企业家“爱国”的背后  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/20/7/22/n12274646.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山西金融业大地震 三天五人被查       >-009fcc?logoWidth=1" title="山西金融业大地震 三天五人被查  " alt="山西金融业大地震 三天五人被查  "></a></p>
-<p><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/20/7/22/n12274170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/明天系公开挑战中共高层的背后        >-009fcc?logoWidth=1" title="明天系公开挑战中共高层的背后  " alt="明天系公开挑战中共高层的背后  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/20/7/22/n12274235.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/智库：BLM“破四旧”破坏美国基石     >-009fcc?logoWidth=1" title="智库：BLM“破四旧”破坏美国基石  " alt="智库：BLM“破四旧”破坏美国基石  "></a></p>
+<p><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/20/7/22/n12274119.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：美国区分中共与中国 中共为何气急败坏 >-009fcc?logoWidth=1" title="袁斌：美国区分中共与中国 中共为何气急败坏  " alt="袁斌：美国区分中共与中国 中共为何气急败坏  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/20/7/22/n12274646.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山西金融业大地震 百亿爆雷案惊动中共高层  >-009fcc?logoWidth=1" title="山西金融业大地震 百亿爆雷案惊动中共高层  " alt="山西金融业大地震 百亿爆雷案惊动中共高层  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/2020/07/21/a102898510.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院为一团体发重磅声明 吓坏中共    >-009fcc?logoWidth=1" title="美国务院为一团体发重磅声明 吓坏中共  " alt="美国务院为一团体发重磅声明 吓坏中共  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强不慎滑倒视频热传 党媒罕见低调    >-009fcc?logoWidth=1" title="李克强不慎滑倒视频热传 党媒罕见低调  " alt="李克强不慎滑倒视频热传 党媒罕见低调  "></a></p>
+<p><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/20/7/22/n12274170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/明天系公开挑战中共高层的背后        >-009fcc?logoWidth=1" title="明天系公开挑战中共高层的背后  " alt="明天系公开挑战中共高层的背后  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/2020/07/21/a102898785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/直播新闻突掉门牙 女主播淡定接住获热赞   >-009fcc?logoWidth=1" title="直播新闻突掉门牙 女主播淡定接住获热赞  " alt="直播新闻突掉门牙 女主播淡定接住获热赞  "></a></p>
-<p><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/20/7/22/n12274119.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：美国区分中共与中国 中共为何气急败坏 >-009fcc?logoWidth=1" title="袁斌：美国区分中共与中国 中共为何气急败坏  " alt="袁斌：美国区分中共与中国 中共为何气急败坏  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/20/7/21/n12271277.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美重量级参议员：法轮功受害者应该被铭记   >-009fcc?logoWidth=1" title="美重量级参议员：法轮功受害者应该被铭记  " alt="美重量级参议员：法轮功受害者应该被铭记  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/2020/07/22/a102899659.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美政商猛料被爆出 舔习法师遭打压      >-009fcc?logoWidth=1" title="美政商猛料被爆出 舔习法师遭打压  " alt="美政商猛料被爆出 舔习法师遭打压  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/2020/07/22/a102899310.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平露面谈“爱国” 与李克强各说各话   >-009fcc?logoWidth=1" title="习近平露面谈“爱国” 与李克强各说各话  " alt="习近平露面谈“爱国” 与李克强各说各话  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ktbrqc3336/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ktbrqc3336/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ktbrqc3336/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ktbrqc3336/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ktbrqc3336/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ktbrqc3336/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hmmmm">git.io/hmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/mnnnn">git.io/mnnnn</a></div>
 

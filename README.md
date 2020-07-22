@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tdsyip367/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tdsyip367/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k8888">git.io/k8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qkkkk">git.io/qkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppn">x.co/ppn</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898606.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/水漫千年古庙 港演艺圈群聚感染       >-009fcc?logoWidth=1" title="水漫千年古庙 港演艺圈群聚感染  " alt="水漫千年古庙 港演艺圈群聚感染  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898491.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平外交思想研究中心成立 网民笑翻：是得研>-009fcc?logoWidth=1" title="习近平外交思想研究中心成立 网民笑翻：是得研究  " alt="习近平外交思想研究中心成立 网民笑翻：是得研究  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898479.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议不开了？习麻烦缠身 传元老想和他谈>-009fcc?logoWidth=1" title="北戴河会议不开了？习麻烦缠身 传元老想和他谈谈  " alt="北戴河会议不开了？习麻烦缠身 传元老想和他谈谈  "></a></p>
+<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/22/a102899288.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罗家聪：中共缺钱 向港征税机会大      >-009fcc?logoWidth=1" title="罗家聪：中共缺钱 向港征税机会大  " alt="罗家聪：中共缺钱 向港征税机会大  "></a></p>
+<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/22/a102899284.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夫妇枪指家门外示威者被控重罪 州司法部长驳回>-009fcc?logoWidth=1" title="夫妇枪指家门外示威者被控重罪 州司法部长驳回政治起诉  " alt="夫妇枪指家门外示威者被控重罪 州司法部长驳回政治起诉  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/直播新闻突掉门牙 女主播淡定接住获热赞   >-009fcc?logoWidth=1" title="直播新闻突掉门牙 女主播淡定接住获热赞  " alt="直播新闻突掉门牙 女主播淡定接住获热赞  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华人回国更难！中共要求登机需要核酸检查   >-009fcc?logoWidth=1" title="华人回国更难！中共要求登机需要核酸检查  " alt="华人回国更难！中共要求登机需要核酸检查  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898693.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民主党觊觎川普财务记录 最高法院拒绝    >-009fcc?logoWidth=1" title="民主党觊觎川普财务记录 最高法院拒绝  " alt="民主党觊觎川普财务记录 最高法院拒绝  "></a></p>
-<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102899193.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/青海前政协委员王瑞琴：民企痛恨中共体制（2）>-009fcc?logoWidth=1" title="青海前政协委员王瑞琴：民企痛恨中共体制（2）  " alt="青海前政协委员王瑞琴：民企痛恨中共体制（2）  "></a></p>
-<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102899174.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫疫情记者会 川普建议民众佩戴口罩    >-009fcc?logoWidth=1" title="白宫疫情记者会 川普建议民众佩戴口罩  " alt="白宫疫情记者会 川普建议民众佩戴口罩  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12272533.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/明天系公然叫板当局 中共高层内斗激烈    >-009fcc?logoWidth=1" title="明天系公然叫板当局 中共高层内斗激烈  " alt="明天系公然叫板当局 中共高层内斗激烈  "></a></p>
 <p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12272606.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美众议院表决通过 更大范围禁用TikTok >-009fcc?logoWidth=1" title="美众议院表决通过 更大范围禁用TikTok  " alt="美众议院表决通过 更大范围禁用TikTok  "></a></p>
@@ -39,18 +39,18 @@
 <p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/20/n12270329.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南涝北旱加虫灾 中国粮食供应将如何？（上） >-009fcc?logoWidth=1" title="南涝北旱加虫灾 中国粮食供应将如何？（上）  " alt="南涝北旱加虫灾 中国粮食供应将如何？（上）  "></a></p>
 <p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12272983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙大学生犯强奸罪被留校察看 群情激愤    >-009fcc?logoWidth=1" title="浙大学生犯强奸罪被留校察看 群情激愤  " alt="浙大学生犯强奸罪被留校察看 群情激愤  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/22/a102899262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内斗汹涌 明天系公然叫板！习掐住谁喉咙？>-009fcc?logoWidth=1" title="中共内斗汹涌 明天系公然叫板！习掐住谁喉咙？  " alt="中共内斗汹涌 明天系公然叫板！习掐住谁喉咙？  "></a></p>
+<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部要卖了他？习思想研究中心成立     >-009fcc?logoWidth=1" title="外交部要卖了他？习思想研究中心成立  " alt="外交部要卖了他？习思想研究中心成立  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102899180.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/封杀中共成员第一案？军方学者涉签证欺诈面临重>-009fcc?logoWidth=1" title="封杀中共成员第一案？军方学者涉签证欺诈面临重刑  " alt="封杀中共成员第一案？军方学者涉签证欺诈面临重刑  "></a></p>
-<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102899077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安徽王家坝泄洪淹20万人 官称民“自愿牺牲”>-009fcc?logoWidth=1" title="安徽王家坝泄洪淹20万人 官称民“自愿牺牲”  " alt="安徽王家坝泄洪淹20万人 官称民“自愿牺牲”  "></a></p>
-<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海新市长龚正上任 传是刘鹤妹夫      >-009fcc?logoWidth=1" title="上海新市长龚正上任 传是刘鹤妹夫  " alt="上海新市长龚正上任 传是刘鹤妹夫  "></a></p>
-<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国近百核专家集体出走 惊动国务院介入调查 >-009fcc?logoWidth=1" title="中国近百核专家集体出走 惊动国务院介入调查  " alt="中国近百核专家集体出走 惊动国务院介入调查  "></a></p>
+<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898434.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海内斗不寻常 习近平神秘隐身 抛出一句话>-009fcc?logoWidth=1" title="中南海内斗不寻常 习近平神秘隐身 抛出一句话  " alt="中南海内斗不寻常 习近平神秘隐身 抛出一句话  "></a></p>
 <p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12272809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美驻华大使馆中文声明：停止迫害法轮功    >-009fcc?logoWidth=1" title="美驻华大使馆中文声明：停止迫害法轮功  " alt="美驻华大使馆中文声明：停止迫害法轮功  "></a></p>
 <p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12273337.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江一学院传停办消息 引学生与家长恐慌   >-009fcc?logoWidth=1" title="浙江一学院传停办消息 引学生与家长恐慌  " alt="浙江一学院传停办消息 引学生与家长恐慌  "></a></p>
+<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102899077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安徽王家坝泄洪淹20万人 官称民“自愿牺牲”>-009fcc?logoWidth=1" title="安徽王家坝泄洪淹20万人 官称民“自愿牺牲”  " alt="安徽王家坝泄洪淹20万人 官称民“自愿牺牲”  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898588.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/腿长134厘米 蒙古“女巨人”：高个女孩很漂>-009fcc?logoWidth=1" title="腿长134厘米 蒙古“女巨人”：高个女孩很漂亮  " alt="腿长134厘米 蒙古“女巨人”：高个女孩很漂亮  "></a></p>
-<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898646.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“制裁党员”吓坏战狼 学者：中共担心离心潮 >-009fcc?logoWidth=1" title="“制裁党员”吓坏战狼 学者：中共担心离心潮  " alt="“制裁党员”吓坏战狼 学者：中共担心离心潮  "></a></p>
 <p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12273278.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美海关查获144枚山寨冠军戒指 皆来自大陆 >-009fcc?logoWidth=1" title="美海关查获144枚山寨冠军戒指 皆来自大陆  " alt="美海关查获144枚山寨冠军戒指 皆来自大陆  "></a></p>
 <p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12272782.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/强拆逼签被打瘫 她改名坚强 力抗强权    >-009fcc?logoWidth=1" title="强拆逼签被打瘫 她改名坚强 力抗强权  " alt="强拆逼签被打瘫 她改名坚强 力抗强权  "></a></p>
-<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898702.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东遭封杀后 中国奥运冠军也遭禁言一年  >-009fcc?logoWidth=1" title="郝海东遭封杀后 中国奥运冠军也遭禁言一年  " alt="郝海东遭封杀后 中国奥运冠军也遭禁言一年  "></a></p>
-<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898538.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外交部新发言人汪文斌上班第一天     >-009fcc?logoWidth=1" title="中共外交部新发言人汪文斌上班第一天  " alt="中共外交部新发言人汪文斌上班第一天  "></a></p>
+<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海新市长龚正上任 传是刘鹤妹夫      >-009fcc?logoWidth=1" title="上海新市长龚正上任 传是刘鹤妹夫  " alt="上海新市长龚正上任 传是刘鹤妹夫  "></a></p>
+<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国近百核专家集体出走 惊动国务院介入调查 >-009fcc?logoWidth=1" title="中国近百核专家集体出走 惊动国务院介入调查  " alt="中国近百核专家集体出走 惊动国务院介入调查  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tdsyip367/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tdsyip367/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tdsyip367/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tdsyip367/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tdsyip367/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tdsyip367/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tdsyip367/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tdsyip367/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/k8888">git.io/k8888</a></div>
+<div align="center">短网址: <a href="https://git.io/qkkkk">git.io/qkkkk</a></div>
 

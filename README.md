@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tdsyip367/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tdsyip367/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hmmmm">git.io/hmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppe">x.co/ppe</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/djjjj">git.io/djjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2555">x.co/2555</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,18 @@
 <p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/20/n12270329.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南涝北旱加虫灾 中国粮食供应将如何？（上） >-009fcc?logoWidth=1" title="南涝北旱加虫灾 中国粮食供应将如何？（上）  " alt="南涝北旱加虫灾 中国粮食供应将如何？（上）  "></a></p>
 <p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12272983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙大学生犯强奸罪被留校察看 群情激愤    >-009fcc?logoWidth=1" title="浙大学生犯强奸罪被留校察看 群情激愤  " alt="浙大学生犯强奸罪被留校察看 群情激愤  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898702.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东遭封杀后 中国奥运冠军也遭禁言一年  >-009fcc?logoWidth=1" title="郝海东遭封杀后 中国奥运冠军也遭禁言一年  " alt="郝海东遭封杀后 中国奥运冠军也遭禁言一年  "></a></p>
-<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898646.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“制裁党员”吓坏战狼 学者：中共担心离心潮 >-009fcc?logoWidth=1" title="“制裁党员”吓坏战狼 学者：中共担心离心潮  " alt="“制裁党员”吓坏战狼 学者：中共担心离心潮  "></a></p>
-<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898538.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外交部新发言人汪文斌上班第一天     >-009fcc?logoWidth=1" title="中共外交部新发言人汪文斌上班第一天  " alt="中共外交部新发言人汪文斌上班第一天  "></a></p>
+<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/22/a102899253.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:危机中夺权 习近平“座谈会”奇袭李克强>-009fcc?logoWidth=1" title="文昭:危机中夺权 习近平“座谈会”奇袭李克强  " alt="文昭:危机中夺权 习近平“座谈会”奇袭李克强  "></a></p>
+<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102899077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安徽王家坝泄洪淹20万人 官称民“自愿牺牲”>-009fcc?logoWidth=1" title="安徽王家坝泄洪淹20万人 官称民“自愿牺牲”  " alt="安徽王家坝泄洪淹20万人 官称民“自愿牺牲”  "></a></p>
+<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海新市长龚正上任 传是刘鹤妹夫      >-009fcc?logoWidth=1" title="上海新市长龚正上任 传是刘鹤妹夫  " alt="上海新市长龚正上任 传是刘鹤妹夫  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国近百核专家集体出走 惊动国务院介入调查 >-009fcc?logoWidth=1" title="中国近百核专家集体出走 惊动国务院介入调查  " alt="中国近百核专家集体出走 惊动国务院介入调查  "></a></p>
 <p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12272809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美驻华大使馆中文声明：停止迫害法轮功    >-009fcc?logoWidth=1" title="美驻华大使馆中文声明：停止迫害法轮功  " alt="美驻华大使馆中文声明：停止迫害法轮功  "></a></p>
 <p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12273337.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江一学院传停办消息 引学生与家长恐慌   >-009fcc?logoWidth=1" title="浙江一学院传停办消息 引学生与家长恐慌  " alt="浙江一学院传停办消息 引学生与家长恐慌  "></a></p>
+<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898588.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/腿长134厘米 蒙古“女巨人”：高个女孩很漂>-009fcc?logoWidth=1" title="腿长134厘米 蒙古“女巨人”：高个女孩很漂亮  " alt="腿长134厘米 蒙古“女巨人”：高个女孩很漂亮  "></a></p>
+<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898646.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“制裁党员”吓坏战狼 学者：中共担心离心潮 >-009fcc?logoWidth=1" title="“制裁党员”吓坏战狼 学者：中共担心离心潮  " alt="“制裁党员”吓坏战狼 学者：中共担心离心潮  "></a></p>
 <p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12273278.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美海关查获144枚山寨冠军戒指 皆来自大陆 >-009fcc?logoWidth=1" title="美海关查获144枚山寨冠军戒指 皆来自大陆  " alt="美海关查获144枚山寨冠军戒指 皆来自大陆  "></a></p>
 <p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12272782.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/强拆逼签被打瘫 她改名坚强 力抗强权    >-009fcc?logoWidth=1" title="强拆逼签被打瘫 她改名坚强 力抗强权  " alt="强拆逼签被打瘫 她改名坚强 力抗强权  "></a></p>
-<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898588.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/腿长134厘米 蒙古“女巨人”：高个女孩很漂>-009fcc?logoWidth=1" title="腿长134厘米 蒙古“女巨人”：高个女孩很漂亮  " alt="腿长134厘米 蒙古“女巨人”：高个女孩很漂亮  "></a></p>
-<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898675.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/飞到一半不动 哥伦比亚白鸽空中被“定格”（视>-009fcc?logoWidth=1" title="飞到一半不动 哥伦比亚白鸽空中被“定格”（视频）  " alt="飞到一半不动 哥伦比亚白鸽空中被“定格”（视频）  "></a></p>
+<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898702.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东遭封杀后 中国奥运冠军也遭禁言一年  >-009fcc?logoWidth=1" title="郝海东遭封杀后 中国奥运冠军也遭禁言一年  " alt="郝海东遭封杀后 中国奥运冠军也遭禁言一年  "></a></p>
+<p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898538.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外交部新发言人汪文斌上班第一天     >-009fcc?logoWidth=1" title="中共外交部新发言人汪文斌上班第一天  " alt="中共外交部新发言人汪文斌上班第一天  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,7 +489,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/tdsyip367/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tdsyip367/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tdsyip367/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tdsyip367/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tdsyip367/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tdsyip367/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hmmmm">git.io/hmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/djjjj">git.io/djjjj</a></div>
 

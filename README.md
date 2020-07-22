@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ktbrqc3336/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ktbrqc3336/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mqqqq">git.io/mqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppz">x.co/ppz</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uffff">git.io/uffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u99">x.co/u99</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/2020/07/22/a102899424.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜大饥荒 金正恩下令吃乌龟肉和减肥药   >-009fcc?logoWidth=1" title="朝鲜大饥荒 金正恩下令吃乌龟肉和减肥药  " alt="朝鲜大饥荒 金正恩下令吃乌龟肉和减肥药  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/2020/07/22/a102899370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：7.21港人重现元朗抗争 警方拘捕多人>-009fcc?logoWidth=1" title="组图：7.21港人重现元朗抗争 警方拘捕多人  " alt="组图：7.21港人重现元朗抗争 警方拘捕多人  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/2020/07/22/a102899356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/防北戴河会议惹事？ 习突袭曾庆红“钱袋子” >-009fcc?logoWidth=1" title="防北戴河会议惹事？ 习突袭曾庆红“钱袋子”  " alt="防北戴河会议惹事？ 习突袭曾庆红“钱袋子”  "></a></p>
+<p><a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/2020/07/22/a102899819.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参院外交关系委员会听证会：推进美国对中国的>-009fcc?logoWidth=1" title="美参院外交关系委员会听证会：推进美国对中国的有效竞争（同声翻译）?  " alt="美参院外交关系委员会听证会：推进美国对中国的有效竞争（同声翻译）?  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/2020/07/22/a102899773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全国过“紧日子” 内部文件曝公安待遇仍提升 >-009fcc?logoWidth=1" title="全国过“紧日子” 内部文件曝公安待遇仍提升  " alt="全国过“紧日子” 内部文件曝公安待遇仍提升  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/2020/07/22/a102899771.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安徽湖北江西多地被淹 洪峰北上河南     >-009fcc?logoWidth=1" title="安徽湖北江西多地被淹 洪峰北上河南  " alt="安徽湖北江西多地被淹 洪峰北上河南  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/2020/07/22/a102899753.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯顿中领馆被关 撤离前焚烧机密文件    >-009fcc?logoWidth=1" title="休斯顿中领馆被关 撤离前焚烧机密文件  " alt="休斯顿中领馆被关 撤离前焚烧机密文件  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/2020/07/22/a102899688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥中国政策顾问 华裔学者余茂春亮相   >-009fcc?logoWidth=1" title="蓬佩奥中国政策顾问 华裔学者余茂春亮相  " alt="蓬佩奥中国政策顾问 华裔学者余茂春亮相  "></a></p>
-<p><a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/2020/07/22/a102899651.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国国际宗教自由听证会：中共对宗教的技术监控>-009fcc?logoWidth=1" title="美国国际宗教自由听证会：中共对宗教的技术监控（同声翻译）  " alt="美国国际宗教自由听证会：中共对宗教的技术监控（同声翻译）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/20/7/22/n12274883.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美关闭休斯顿中领馆“间谍活动猖獗”     >-009fcc?logoWidth=1" title="美关闭休斯顿中领馆“间谍活动猖獗”  " alt="美关闭休斯顿中领馆“间谍活动猖獗”  "></a></p>
 <p><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/20/7/21/n12272533.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/明天系公然叫板当局 中共高层内斗激烈    >-009fcc?logoWidth=1" title="明天系公然叫板当局 中共高层内斗激烈  " alt="明天系公然叫板当局 中共高层内斗激烈  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ktbrqc3336/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ktbrqc3336/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ktbrqc3336/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ktbrqc3336/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ktbrqc3336/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ktbrqc3336/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ktbrqc3336/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ktbrqc3336/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mqqqq">git.io/mqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/uffff">git.io/uffff</a></div>
 

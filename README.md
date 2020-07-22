@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tdsyip367/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tdsyip367/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mjjjj">git.io/mjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/cdd">x.co/cdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/grrrr">git.io/grrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/377">x.co/377</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,28 +28,25 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12272533.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/明天系公然叫板当局 中共高层内斗激烈    >-009fcc?logoWidth=1" title="明天系公然叫板当局 中共高层内斗激烈  " alt="明天系公然叫板当局 中共高层内斗激烈  "></a></p>
 <p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/22/n12274094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢田：六大准备折射中共六大危机       >-009fcc?logoWidth=1" title="谢田：六大准备折射中共六大危机  " alt="谢田：六大准备折射中共六大危机  "></a></p>
-<p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/22/n12274119.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：美国区分中共与中国 中共为何气急败坏 >-009fcc?logoWidth=1" title="袁斌：美国区分中共与中国 中共为何气急败坏  " alt="袁斌：美国区分中共与中国 中共为何气急败坏  "></a></p>
+<p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12272606.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美众议院表决通过 更大范围禁用TikTok >-009fcc?logoWidth=1" title="美众议院表决通过 更大范围禁用TikTok  " alt="美众议院表决通过 更大范围禁用TikTok  "></a></p>
 <p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12273142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美起诉两中国骇客 点名中共国安部操控    >-009fcc?logoWidth=1" title="美起诉两中国骇客 点名中共国安部操控  " alt="美起诉两中国骇客 点名中共国安部操控  "></a></p>
 <p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12272907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共女军医被美控签证欺诈 面临重刑罚款   >-009fcc?logoWidth=1" title="中共女军医被美控签证欺诈 面临重刑罚款  " alt="中共女军医被美控签证欺诈 面临重刑罚款  "></a></p>
 <p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/14/n12256259.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“一网打尽式”舆情维稳揭秘       >-009fcc?logoWidth=1" title="中共“一网打尽式”舆情维稳揭秘  " alt="中共“一网打尽式”舆情维稳揭秘  "></a></p>
 <p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12273061.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强化战狼外交 成立习外交思想研究中心  >-009fcc?logoWidth=1" title="中共强化战狼外交 成立习外交思想研究中心  " alt="中共强化战狼外交 成立习外交思想研究中心  "></a></p>
 <p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12271574.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：五位中纪委书记对待法轮功之我见   >-009fcc?logoWidth=1" title="王友群：五位中纪委书记对待法轮功之我见  " alt="王友群：五位中纪委书记对待法轮功之我见  "></a></p>
 <p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12271277.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美重量级参议员：法轮功受害者应该被铭记   >-009fcc?logoWidth=1" title="美重量级参议员：法轮功受害者应该被铭记  " alt="美重量级参议员：法轮功受害者应该被铭记  "></a></p>
-<p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/22/n12274170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/明天系公开挑战中共高层的背后        >-009fcc?logoWidth=1" title="明天系公开挑战中共高层的背后  " alt="明天系公开挑战中共高层的背后  "></a></p>
 <p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12273317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：美中关于法轮功问题隔空交锋      >-009fcc?logoWidth=1" title="杨威：美中关于法轮功问题隔空交锋  " alt="杨威：美中关于法轮功问题隔空交锋  "></a></p>
 <p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/22/n12273938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/旷古的邪恶与残暴 洪大的慈悲与善良（2）  >-009fcc?logoWidth=1" title="旷古的邪恶与残暴 洪大的慈悲与善良（2）  " alt="旷古的邪恶与残暴 洪大的慈悲与善良（2）  "></a></p>
+<p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12273763.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南涝北旱加虫灾 中国粮食供应将如何？（下） >-009fcc?logoWidth=1" title="南涝北旱加虫灾 中国粮食供应将如何？（下）  " alt="南涝北旱加虫灾 中国粮食供应将如何？（下）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12272971.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：疫情中 习近平没有为世界提供帮助  >-009fcc?logoWidth=1" title="蓬佩奥：疫情中 习近平没有为世界提供帮助  " alt="蓬佩奥：疫情中 习近平没有为世界提供帮助  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/22/a102899267.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习要取消北戴河会议？社媒爆中共性丑闻要胁名人>-009fcc?logoWidth=1" title="习要取消北戴河会议？社媒爆中共性丑闻要胁名人  " alt="习要取消北戴河会议？社媒爆中共性丑闻要胁名人  "></a></p>
-<p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/20/n12270329.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南涝北旱加虫灾 中国粮食供应将如何？（上） >-009fcc?logoWidth=1" title="南涝北旱加虫灾 中国粮食供应将如何？（上）  " alt="南涝北旱加虫灾 中国粮食供应将如何？（上）  "></a></p>
-<p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12272983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙大学生犯强奸罪被留校察看 群情激愤    >-009fcc?logoWidth=1" title="浙大学生犯强奸罪被留校察看 群情激愤  " alt="浙大学生犯强奸罪被留校察看 群情激愤  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部要卖了他？习思想研究中心成立     >-009fcc?logoWidth=1" title="外交部要卖了他？习思想研究中心成立  " alt="外交部要卖了他？习思想研究中心成立  "></a></p>
-<p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12272809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美驻华大使馆中文声明：停止迫害法轮功    >-009fcc?logoWidth=1" title="美驻华大使馆中文声明：停止迫害法轮功  " alt="美驻华大使馆中文声明：停止迫害法轮功  "></a></p>
-<p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12273337.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江一学院传停办消息 引学生与家长恐慌   >-009fcc?logoWidth=1" title="浙江一学院传停办消息 引学生与家长恐慌  " alt="浙江一学院传停办消息 引学生与家长恐慌  "></a></p>
+<p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12273452.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美政要区分中共与中国 令中共当局恐慌    >-009fcc?logoWidth=1" title="美政要区分中共与中国 令中共当局恐慌  " alt="美政要区分中共与中国 令中共当局恐慌  "></a></p>
+<p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12272971.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：疫情中 习近平没有为世界提供帮助  >-009fcc?logoWidth=1" title="蓬佩奥：疫情中 习近平没有为世界提供帮助  " alt="蓬佩奥：疫情中 习近平没有为世界提供帮助  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898479.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议不开了？习麻烦缠身 传元老想和他谈>-009fcc?logoWidth=1" title="北戴河会议不开了？习麻烦缠身 传元老想和他谈谈  " alt="北戴河会议不开了？习麻烦缠身 传元老想和他谈谈  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898434.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海内斗不寻常 习近平神秘隐身 抛出一句话>-009fcc?logoWidth=1" title="中南海内斗不寻常 习近平神秘隐身 抛出一句话  " alt="中南海内斗不寻常 习近平神秘隐身 抛出一句话  "></a></p>
-<p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12273278.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美海关查获144枚山寨冠军戒指 皆来自大陆 >-009fcc?logoWidth=1" title="美海关查获144枚山寨冠军戒指 皆来自大陆  " alt="美海关查获144枚山寨冠军戒指 皆来自大陆  "></a></p>
-<p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12272782.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/强拆逼签被打瘫 她改名坚强 力抗强权    >-009fcc?logoWidth=1" title="强拆逼签被打瘫 她改名坚强 力抗强权  " alt="强拆逼签被打瘫 她改名坚强 力抗强权  "></a></p>
+<p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12272983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙大学生犯强奸罪被留校察看 群情激愤    >-009fcc?logoWidth=1" title="浙大学生犯强奸罪被留校察看 群情激愤  " alt="浙大学生犯强奸罪被留校察看 群情激愤  "></a></p>
+<p><a href="https://github.com/tdsyip367/djy/blob/master/gb/20/7/21/n12272809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美驻华大使馆中文声明：停止迫害法轮功    >-009fcc?logoWidth=1" title="美驻华大使馆中文声明：停止迫害法轮功  " alt="美驻华大使馆中文声明：停止迫害法轮功  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102899077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安徽王家坝泄洪淹20万人 官称民“自愿牺牲”>-009fcc?logoWidth=1" title="安徽王家坝泄洪淹20万人 官称民“自愿牺牲”  " alt="安徽王家坝泄洪淹20万人 官称民“自愿牺牲”  "></a></p>
 <p><a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/2020/07/21/a102898588.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/腿长134厘米 蒙古“女巨人”：高个女孩很漂>-009fcc?logoWidth=1" title="腿长134厘米 蒙古“女巨人”：高个女孩很漂亮  " alt="腿长134厘米 蒙古“女巨人”：高个女孩很漂亮  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -489,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tdsyip367/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tdsyip367/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tdsyip367/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tdsyip367/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tdsyip367/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tdsyip367/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tdsyip367/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tdsyip367/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tdsyip367/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mjjjj">git.io/mjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/grrrr">git.io/grrrr</a></div>
 

@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/drrpnr398/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/drrpnr398/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bbbbbbbb">git.io/bbbbbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/udd">x.co/udd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ftttt">git.io/ftttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/vdd">x.co/vdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899424.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜大饥荒 金正恩下令吃乌龟肉和减肥药   >-009fcc?logoWidth=1" title="朝鲜大饥荒 金正恩下令吃乌龟肉和减肥药  " alt="朝鲜大饥荒 金正恩下令吃乌龟肉和减肥药  "></a></p>
 <p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：7.21港人重现元朗抗争 警方拘捕多人>-009fcc?logoWidth=1" title="组图：7.21港人重现元朗抗争 警方拘捕多人  " alt="组图：7.21港人重现元朗抗争 警方拘捕多人  "></a></p>
 <p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/防北戴河会议惹事？ 习突袭曾庆红“钱袋子” >-009fcc?logoWidth=1" title="防北戴河会议惹事？ 习突袭曾庆红“钱袋子”  " alt="防北戴河会议惹事？ 习突袭曾庆红“钱袋子”  "></a></p>
 <p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强不慎滑倒视频热传 党媒罕见低调(视频)>-009fcc?logoWidth=1" title="李克强不慎滑倒视频热传 党媒罕见低调(视频)  " alt="李克强不慎滑倒视频热传 党媒罕见低调(视频)  "></a></p>
 <p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899310.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平露面谈“爱国” 与李克强各说各话   >-009fcc?logoWidth=1" title="习近平露面谈“爱国” 与李克强各说各话  " alt="习近平露面谈“爱国” 与李克强各说各话  "></a></p>
 <p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899269.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/20余中国人偷渡越南打工被捕 震惊网络   >-009fcc?logoWidth=1" title="20余中国人偷渡越南打工被捕 震惊网络  " alt="20余中国人偷渡越南打工被捕 震惊网络  "></a></p>
-<p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899253.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:危机中夺权 习近平“座谈会”奇袭李克强>-009fcc?logoWidth=1" title="文昭:危机中夺权 习近平“座谈会”奇袭李克强  " alt="文昭:危机中夺权 习近平“座谈会”奇袭李克强  "></a></p>
 <p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/母亲染疫住院 儿天天爬墙隔窗陪伴 结局令人泪>-009fcc?logoWidth=1" title="母亲染疫住院 儿天天爬墙隔窗陪伴 结局令人泪崩  " alt="母亲染疫住院 儿天天爬墙隔窗陪伴 结局令人泪崩  "></a></p>
 <p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/劲爆：中领馆紧急焚烧大量文件 传川普将下驱逐>-009fcc?logoWidth=1" title="劲爆：中领馆紧急焚烧大量文件 传川普将下驱逐令  " alt="劲爆：中领馆紧急焚烧大量文件 传川普将下驱逐令  "></a></p>
 <p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899439.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安徽泄洪变汪洋 女记者：安徽人是穷，但我们不>-009fcc?logoWidth=1" title="安徽泄洪变汪洋 女记者：安徽人是穷，但我们不傻  " alt="安徽泄洪变汪洋 女记者：安徽人是穷，但我们不傻  "></a></p>
 <p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899442.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美驻华大使馆中文声明：停止迫害法轮功    >-009fcc?logoWidth=1" title="美驻华大使馆中文声明：停止迫害法轮功  " alt="美驻华大使馆中文声明：停止迫害法轮功  "></a></p>
-<p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899424.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜大饥荒 金正恩下令吃乌龟肉和减肥药   >-009fcc?logoWidth=1" title="朝鲜大饥荒 金正恩下令吃乌龟肉和减肥药  " alt="朝鲜大饥荒 金正恩下令吃乌龟肉和减肥药  "></a></p>
+<p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对抗游击组织 哥伦比亚直升机坠毁酿9死6伤 >-009fcc?logoWidth=1" title="对抗游击组织 哥伦比亚直升机坠毁酿9死6伤  " alt="对抗游击组织 哥伦比亚直升机坠毁酿9死6伤  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/drrpnr398/djy/blob/master/gb/20/7/21/n12272533.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/明天系公然叫板当局 中共高层内斗激烈    >-009fcc?logoWidth=1" title="明天系公然叫板当局 中共高层内斗激烈  " alt="明天系公然叫板当局 中共高层内斗激烈  "></a></p>
 <p><a href="https://github.com/drrpnr398/djy/blob/master/gb/20/7/22/n12274094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢田：六大准备折射中共六大危机       >-009fcc?logoWidth=1" title="谢田：六大准备折射中共六大危机  " alt="谢田：六大准备折射中共六大危机  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/drrpnr398/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/drrpnr398/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/drrpnr398/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/drrpnr398/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/drrpnr398/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/drrpnr398/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/drrpnr398/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/drrpnr398/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bbbbbbbb">git.io/bbbbbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/ftttt">git.io/ftttt</a></div>
 

@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/drrpnr398/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/drrpnr398/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rffff">git.io/rffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2299">x.co/2299</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dzzzz">git.io/dzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2333">x.co/2333</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：7.21港人重现元朗抗争 警方拘捕多人>-009fcc?logoWidth=1" title="组图：7.21港人重现元朗抗争 警方拘捕多人  " alt="组图：7.21港人重现元朗抗争 警方拘捕多人  "></a></p>
 <p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/防北戴河会议惹事？ 习突袭曾庆红“钱袋子”%3F>-009fcc?logoWidth=1" title="防北戴河会议惹事？ 习突袭曾庆红“钱袋子”?  " alt="防北戴河会议惹事？ 习突袭曾庆红“钱袋子”?  "></a></p>
 <p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强不慎滑倒视频热传 党媒罕见低调(视频)>-009fcc?logoWidth=1" title="李克强不慎滑倒视频热传 党媒罕见低调(视频)  " alt="李克强不慎滑倒视频热传 党媒罕见低调(视频)  "></a></p>
 <p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899310.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平露面谈“爱国” 与李克强各说各话   >-009fcc?logoWidth=1" title="习近平露面谈“爱国” 与李克强各说各话  " alt="习近平露面谈“爱国” 与李克强各说各话  "></a></p>
+<p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899269.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/20余中国人偷渡越南打工被捕 震惊网络   >-009fcc?logoWidth=1" title="20余中国人偷渡越南打工被捕 震惊网络  " alt="20余中国人偷渡越南打工被捕 震惊网络  "></a></p>
 <p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899253.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:危机中夺权 习近平“座谈会”奇袭李克强>-009fcc?logoWidth=1" title="文昭:危机中夺权 习近平“座谈会”奇袭李克强  " alt="文昭:危机中夺权 习近平“座谈会”奇袭李克强  "></a></p>
-<p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/21/a102898980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农：川普定下“四骑士”计划击垮中共 分两步>-009fcc?logoWidth=1" title="班农：川普定下“四骑士”计划击垮中共 分两步走  " alt="班农：川普定下“四骑士”计划击垮中共 分两步走  "></a></p>
-<p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/21/a102898720.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平抄曾庆红“家”/北戴河会不开了？   >-009fcc?logoWidth=1" title="习近平抄曾庆红“家”/北戴河会不开了？  " alt="习近平抄曾庆红“家”/北戴河会不开了？  "></a></p>
 <p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对抗游击组织 哥伦比亚直升机坠毁酿9死6伤 >-009fcc?logoWidth=1" title="对抗游击组织 哥伦比亚直升机坠毁酿9死6伤  " alt="对抗游击组织 哥伦比亚直升机坠毁酿9死6伤  "></a></p>
-<p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：7.21港人重现元朗抗争 警方拘捕多人>-009fcc?logoWidth=1" title="组图：7.21港人重现元朗抗争 警方拘捕多人  " alt="组图：7.21港人重现元朗抗争 警方拘捕多人  "></a></p>
 <p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899354.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄脊竹蝗入侵云南 波及13.5万亩地    >-009fcc?logoWidth=1" title="黄脊竹蝗入侵云南 波及13.5万亩地  " alt="黄脊竹蝗入侵云南 波及13.5万亩地  "></a></p>
 <p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899329.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/挟持公车13人质 乌克兰出动装甲车 武装男遭>-009fcc?logoWidth=1" title="挟持公车13人质 乌克兰出动装甲车 武装男遭制伏  " alt="挟持公车13人质 乌克兰出动装甲车 武装男遭制伏  "></a></p>
 <p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899288.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罗家聪：中共缺钱 向港征税机会大      >-009fcc?logoWidth=1" title="罗家聪：中共缺钱 向港征税机会大  " alt="罗家聪：中共缺钱 向港征税机会大  "></a></p>
+<p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899332.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制定解体中共“战争计划” 4骑士出战  >-009fcc?logoWidth=1" title="美国制定解体中共“战争计划” 4骑士出战  " alt="美国制定解体中共“战争计划” 4骑士出战  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/drrpnr398/djy/blob/master/gb/20/7/21/n12272533.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/明天系公然叫板当局 中共高层内斗激烈    >-009fcc?logoWidth=1" title="明天系公然叫板当局 中共高层内斗激烈  " alt="明天系公然叫板当局 中共高层内斗激烈  "></a></p>
 <p><a href="https://github.com/drrpnr398/djy/blob/master/gb/20/7/22/n12274094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢田：六大准备折射中共六大危机       >-009fcc?logoWidth=1" title="谢田：六大准备折射中共六大危机  " alt="谢田：六大准备折射中共六大危机  "></a></p>
@@ -39,7 +39,6 @@
 <p><a href="https://github.com/drrpnr398/djy/blob/master/gb/20/7/21/n12273317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：美中关于法轮功问题隔空交锋      >-009fcc?logoWidth=1" title="杨威：美中关于法轮功问题隔空交锋  " alt="杨威：美中关于法轮功问题隔空交锋  "></a></p>
 <p><a href="https://github.com/drrpnr398/djy/blob/master/gb/20/7/22/n12273938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/旷古的邪恶与残暴 洪大的慈悲与善良（2）  >-009fcc?logoWidth=1" title="旷古的邪恶与残暴 洪大的慈悲与善良（2）  " alt="旷古的邪恶与残暴 洪大的慈悲与善良（2）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899269.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/20余中国人偷渡越南打工被捕 震惊网络   >-009fcc?logoWidth=1" title="20余中国人偷渡越南打工被捕 震惊网络  " alt="20余中国人偷渡越南打工被捕 震惊网络  "></a></p>
 <p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899267.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习要取消北戴河会议？社媒爆中共性丑闻要胁名人>-009fcc?logoWidth=1" title="习要取消北戴河会议？社媒爆中共性丑闻要胁名人  " alt="习要取消北戴河会议？社媒爆中共性丑闻要胁名人  "></a></p>
 <p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/21/a102898990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部要卖了他？习思想研究中心成立     >-009fcc?logoWidth=1" title="外交部要卖了他？习思想研究中心成立  " alt="外交部要卖了他？习思想研究中心成立  "></a></p>
 <p><a href="https://github.com/drrpnr398/djy/blob/master/gb/20/7/21/n12273763.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南涝北旱加虫灾 中国粮食供应将如何？（下） >-009fcc?logoWidth=1" title="南涝北旱加虫灾 中国粮食供应将如何？（下）  " alt="南涝北旱加虫灾 中国粮食供应将如何？（下）  "></a></p>
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/drrpnr398/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/drrpnr398/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/drrpnr398/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/drrpnr398/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/drrpnr398/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/drrpnr398/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/drrpnr398/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/drrpnr398/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rffff">git.io/rffff</a></div>
+<div align="center">短网址: <a href="https://git.io/dzzzz">git.io/dzzzz</a></div>
 

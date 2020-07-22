@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/drrpnr398/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/drrpnr398/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dssss">git.io/dssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aan">x.co/aan</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/s8888">git.io/s8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2229">x.co/2229</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,10 @@
 <p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强不慎滑倒视频热传 党媒罕见低调(视频)>-009fcc?logoWidth=1" title="李克强不慎滑倒视频热传 党媒罕见低调(视频)  " alt="李克强不慎滑倒视频热传 党媒罕见低调(视频)  "></a></p>
 <p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899310.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平露面谈“爱国” 与李克强各说各话   >-009fcc?logoWidth=1" title="习近平露面谈“爱国” 与李克强各说各话  " alt="习近平露面谈“爱国” 与李克强各说各话  "></a></p>
 <p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899269.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/20余中国人偷渡越南打工被捕 震惊网络   >-009fcc?logoWidth=1" title="20余中国人偷渡越南打工被捕 震惊网络  " alt="20余中国人偷渡越南打工被捕 震惊网络  "></a></p>
+<p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/玻国街道民宅5天内发现400具尸 85染疫病>-009fcc?logoWidth=1" title="玻国街道民宅5天内发现400具尸 85染疫病故  " alt="玻国街道民宅5天内发现400具尸 85染疫病故  "></a></p>
+<p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/21/a102898517.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港2名驻台人员被拒签 台湾强硬回击中共  >-009fcc?logoWidth=1" title="香港2名驻台人员被拒签 台湾强硬回击中共  " alt="香港2名驻台人员被拒签 台湾强硬回击中共  "></a></p>
 <p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/母亲染疫住院 儿天天爬墙隔窗陪伴 结局令人泪>-009fcc?logoWidth=1" title="母亲染疫住院 儿天天爬墙隔窗陪伴 结局令人泪崩  " alt="母亲染疫住院 儿天天爬墙隔窗陪伴 结局令人泪崩  "></a></p>
-<p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/劲爆：中领馆紧急焚烧大量文件 传川普将下驱逐>-009fcc?logoWidth=1" title="劲爆：中领馆紧急焚烧大量文件 传川普将下驱逐令  " alt="劲爆：中领馆紧急焚烧大量文件 传川普将下驱逐令  "></a></p>
-<p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899439.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安徽泄洪变汪洋 女记者：安徽人是穷，但我们不>-009fcc?logoWidth=1" title="安徽泄洪变汪洋 女记者：安徽人是穷，但我们不傻  " alt="安徽泄洪变汪洋 女记者：安徽人是穷，但我们不傻  "></a></p>
-<p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899442.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美驻华大使馆中文声明：停止迫害法轮功    >-009fcc?logoWidth=1" title="美驻华大使馆中文声明：停止迫害法轮功  " alt="美驻华大使馆中文声明：停止迫害法轮功  "></a></p>
-<p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对抗游击组织 哥伦比亚直升机坠毁酿9死6伤 >-009fcc?logoWidth=1" title="对抗游击组织 哥伦比亚直升机坠毁酿9死6伤  " alt="对抗游击组织 哥伦比亚直升机坠毁酿9死6伤  "></a></p>
+<p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共驻休斯敦外馆失火 民众拍到焚烧大量文件 >-009fcc?logoWidth=1" title="中共驻休斯敦外馆失火 民众拍到焚烧大量文件  " alt="中共驻休斯敦外馆失火 民众拍到焚烧大量文件  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/drrpnr398/djy/blob/master/gb/20/7/21/n12272533.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/明天系公然叫板当局 中共高层内斗激烈    >-009fcc?logoWidth=1" title="明天系公然叫板当局 中共高层内斗激烈  " alt="明天系公然叫板当局 中共高层内斗激烈  "></a></p>
 <p><a href="https://github.com/drrpnr398/djy/blob/master/gb/20/7/22/n12274094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢田：六大准备折射中共六大危机       >-009fcc?logoWidth=1" title="谢田：六大准备折射中共六大危机  " alt="谢田：六大准备折射中共六大危机  "></a></p>
@@ -39,6 +38,7 @@
 <p><a href="https://github.com/drrpnr398/djy/blob/master/gb/20/7/21/n12271277.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美重量级参议员：法轮功受害者应该被铭记   >-009fcc?logoWidth=1" title="美重量级参议员：法轮功受害者应该被铭记  " alt="美重量级参议员：法轮功受害者应该被铭记  "></a></p>
 <p><a href="https://github.com/drrpnr398/djy/blob/master/gb/20/7/21/n12273317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：美中关于法轮功问题隔空交锋      >-009fcc?logoWidth=1" title="杨威：美中关于法轮功问题隔空交锋  " alt="杨威：美中关于法轮功问题隔空交锋  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/22/a102899439.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安徽泄洪变汪洋 女记者：安徽人是穷，但我们不>-009fcc?logoWidth=1" title="安徽泄洪变汪洋 女记者：安徽人是穷，但我们不傻  " alt="安徽泄洪变汪洋 女记者：安徽人是穷，但我们不傻  "></a></p>
 <p><a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/2020/07/21/a102898947.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/计划经济征兆？习近平倡形成国内大循环主体格局>-009fcc?logoWidth=1" title="计划经济征兆？习近平倡形成国内大循环主体格局  " alt="计划经济征兆？习近平倡形成国内大循环主体格局  "></a></p>
 <p><a href="https://github.com/drrpnr398/djy/blob/master/gb/20/7/22/n12273938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/旷古的邪恶与残暴 洪大的慈悲与善良（2）  >-009fcc?logoWidth=1" title="旷古的邪恶与残暴 洪大的慈悲与善良（2）  " alt="旷古的邪恶与残暴 洪大的慈悲与善良（2）  "></a></p>
 <p><a href="https://github.com/drrpnr398/djy/blob/master/gb/20/7/21/n12273763.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南涝北旱加虫灾 中国粮食供应将如何？（下） >-009fcc?logoWidth=1" title="南涝北旱加虫灾 中国粮食供应将如何？（下）  " alt="南涝北旱加虫灾 中国粮食供应将如何？（下）  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/drrpnr398/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/drrpnr398/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/drrpnr398/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/drrpnr398/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/drrpnr398/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/drrpnr398/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/drrpnr398/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/drrpnr398/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/drrpnr398/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dssss">git.io/dssss</a></div>
+<div align="center">短网址: <a href="https://git.io/s8888">git.io/s8888</a></div>
 

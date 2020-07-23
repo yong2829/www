@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wicklt351/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wicklt351/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/frrrr">git.io/frrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppv">x.co/ppv</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tzzzz">git.io/tzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a6a">x.co/a6a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,17 +39,18 @@
 <p><a href="https://github.com/wicklt351/djy/blob/master/gb/20/7/23/n12276929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习等露面辟谣 李克强刻意隐身？       >-009fcc?logoWidth=1" title="习等露面辟谣 李克强刻意隐身？  " alt="习等露面辟谣 李克强刻意隐身？  "></a></p>
 <p><a href="https://github.com/wicklt351/djy/blob/master/gb/20/7/22/n12275724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/火烧文件 休斯顿中领馆最急于销毁什么    >-009fcc?logoWidth=1" title="火烧文件 休斯顿中领馆最急于销毁什么  " alt="火烧文件 休斯顿中领馆最急于销毁什么  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/wicklt351/ntdtv/blob/master/gb/2020/07/23/a102900097.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：巨变突至 休斯顿中领馆被关 川普“惊涛>-009fcc?logoWidth=1" title="文昭：巨变突至 休斯顿中领馆被关 川普“惊涛掌”三掌必发  " alt="文昭：巨变突至 休斯顿中领馆被关 川普“惊涛掌”三掌必发  "></a></p>
-<p><a href="https://github.com/wicklt351/ntdtv/blob/master/gb/2020/07/22/a102899915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又甩锅？大连疫情复发 官称系加工海产品人员 >-009fcc?logoWidth=1" title="又甩锅？大连疫情复发 官称系加工海产品人员  " alt="又甩锅？大连疫情复发 官称系加工海产品人员  "></a></p>
+<p><a href="https://github.com/wicklt351/ntdtv/blob/master/gb/2020/07/23/a102900169.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美关闭中领馆 前驻华大使：恐升级成军事冲突 >-009fcc?logoWidth=1" title="美关闭中领馆 前驻华大使：恐升级成军事冲突  " alt="美关闭中领馆 前驻华大使：恐升级成军事冲突  "></a></p>
+<p><a href="https://github.com/wicklt351/ntdtv/blob/master/gb/2020/07/23/a102900277.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/秦鹏：拔掉中共间谍黑窝 川普灭共大反攻三大看>-009fcc?logoWidth=1" title="秦鹏：拔掉中共间谍黑窝 川普灭共大反攻三大看点  " alt="秦鹏：拔掉中共间谍黑窝 川普灭共大反攻三大看点  "></a></p>
 <p><a href="https://github.com/wicklt351/djy/blob/master/gb/20/7/22/n12275724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/急烧机密文件 中共驻休斯顿领馆毁灭证据   >-009fcc?logoWidth=1" title="急烧机密文件 中共驻休斯顿领馆毁灭证据  " alt="急烧机密文件 中共驻休斯顿领馆毁灭证据  "></a></p>
+<p><a href="https://github.com/wicklt351/ntdtv/blob/master/gb/2020/07/23/a102900097.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：巨变突至 休斯顿中领馆被关 川普“惊涛>-009fcc?logoWidth=1" title="文昭：巨变突至 休斯顿中领馆被关 川普“惊涛掌”三掌必发  " alt="文昭：巨变突至 休斯顿中领馆被关 川普“惊涛掌”三掌必发  "></a></p>
 <p><a href="https://github.com/wicklt351/ntdtv/blob/master/gb/2020/07/22/a102899812.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刚抓2黑客又关休斯顿中领馆 要开战？    >-009fcc?logoWidth=1" title="刚抓2黑客又关休斯顿中领馆 要开战？  " alt="刚抓2黑客又关休斯顿中领馆 要开战？  "></a></p>
-<p><a href="https://github.com/wicklt351/ntdtv/blob/master/gb/2020/07/23/a102900217.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯顿中领馆72小时关闭 中方关哪个？   >-009fcc?logoWidth=1" title="休斯顿中领馆72小时关闭 中方关哪个？  " alt="休斯顿中领馆72小时关闭 中方关哪个？  "></a></p>
 <p><a href="https://github.com/wicklt351/djy/blob/master/gb/20/7/23/n12276958.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯顿中领馆烧啥？传福建大征兵       >-009fcc?logoWidth=1" title="休斯顿中领馆烧啥？传福建大征兵  " alt="休斯顿中领馆烧啥？传福建大征兵  "></a></p>
 <p><a href="https://github.com/wicklt351/djy/blob/master/gb/20/7/22/n12275624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈光诚：美国拟出禁令 中共党政军三心骚动  >-009fcc?logoWidth=1" title="陈光诚：美国拟出禁令 中共党政军三心骚动  " alt="陈光诚：美国拟出禁令 中共党政军三心骚动  "></a></p>
 <p><a href="https://github.com/wicklt351/ntdtv/blob/master/gb/2020/07/22/a102899488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普“灭共”加快节奏 崔天凯泄露中共恐慌  >-009fcc?logoWidth=1" title="川普“灭共”加快节奏 崔天凯泄露中共恐慌  " alt="川普“灭共”加快节奏 崔天凯泄露中共恐慌  "></a></p>
 <p><a href="https://github.com/wicklt351/ntdtv/blob/master/gb/2020/07/22/a102899253.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:危机中夺权 习近平“座谈会”奇袭李克强>-009fcc?logoWidth=1" title="文昭:危机中夺权 习近平“座谈会”奇袭李克强  " alt="文昭:危机中夺权 习近平“座谈会”奇袭李克强  "></a></p>
 <p><a href="https://github.com/wicklt351/djy/blob/master/gb/20/7/22/n12276072.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美关中领馆 中共为何要留学生“保持警觉”  >-009fcc?logoWidth=1" title="美关中领馆 中共为何要留学生“保持警觉”  " alt="美关中领馆 中共为何要留学生“保持警觉”  "></a></p>
 <p><a href="https://github.com/wicklt351/djy/blob/master/gb/20/5/30/n12149160.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/科尔：中共搬起石头砸自己脚         >-009fcc?logoWidth=1" title="科尔：中共搬起石头砸自己脚  " alt="科尔：中共搬起石头砸自己脚  "></a></p>
+<p><a href="https://github.com/wicklt351/ntdtv/blob/master/gb/2020/07/22/a102899915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又甩锅？大连疫情复发 官称系加工海产品人员 >-009fcc?logoWidth=1" title="又甩锅？大连疫情复发 官称系加工海产品人员  " alt="又甩锅？大连疫情复发 官称系加工海产品人员  "></a></p>
 <p><a href="https://github.com/wicklt351/ntdtv/blob/master/gb/2020/07/22/a102899325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强不慎滑倒视频热传 党媒罕见低调(视频)>-009fcc?logoWidth=1" title="李克强不慎滑倒视频热传 党媒罕见低调(视频)  " alt="李克强不慎滑倒视频热传 党媒罕见低调(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -488,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wicklt351/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wicklt351/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wicklt351/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wicklt351/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wicklt351/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wicklt351/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wicklt351/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wicklt351/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wicklt351/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wicklt351/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/frrrr">git.io/frrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/tzzzz">git.io/tzzzz</a></div>
 

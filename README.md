@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wicklt351/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wicklt351/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/taaaa">git.io/taaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3337">x.co/3337</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k8888">git.io/k8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppk">x.co/ppk</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/wicklt351/ntdtv/blob/master/gb/2020/07/21/a102898517.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港2名驻台人员被拒签 台湾强硬回击中共  >-009fcc?logoWidth=1" title="香港2名驻台人员被拒签 台湾强硬回击中共  " alt="香港2名驻台人员被拒签 台湾强硬回击中共  "></a></p>
 <p><a href="https://github.com/wicklt351/ntdtv/blob/master/gb/2020/07/23/a102900225.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共驻旧金山领馆也麻烦了 窝藏FBI通缉女军>-009fcc?logoWidth=1" title="中共驻旧金山领馆也麻烦了 窝藏FBI通缉女军医  " alt="中共驻旧金山领馆也麻烦了 窝藏FBI通缉女军医  "></a></p>
 <p><a href="https://github.com/wicklt351/ntdtv/blob/master/gb/2020/07/23/a102900164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：拆中共南海军事设备 美已部署热战  >-009fcc?logoWidth=1" title="袁弓夷：拆中共南海军事设备 美已部署热战  " alt="袁弓夷：拆中共南海军事设备 美已部署热战  "></a></p>
+<p><a href="https://github.com/wicklt351/ntdtv/blob/master/gb/2020/07/23/a102900128.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美下驱逐令 休斯敦中领馆急毁证       >-009fcc?logoWidth=1" title="美下驱逐令 休斯敦中领馆急毁证  " alt="美下驱逐令 休斯敦中领馆急毁证  "></a></p>
 <p><a href="https://github.com/wicklt351/ntdtv/blob/master/gb/2020/07/23/a102900217.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯顿中领馆72小时关闭 中方关哪个？   >-009fcc?logoWidth=1" title="休斯顿中领馆72小时关闭 中方关哪个？  " alt="休斯顿中领馆72小时关闭 中方关哪个？  "></a></p>
 <p><a href="https://github.com/wicklt351/ntdtv/blob/master/gb/2020/07/23/a102900169.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美关闭中领馆 前驻华大使：恐升级成军事冲突 >-009fcc?logoWidth=1" title="美关闭中领馆 前驻华大使：恐升级成军事冲突  " alt="美关闭中领馆 前驻华大使：恐升级成军事冲突  "></a></p>
-<p><a href="https://github.com/wicklt351/ntdtv/blob/master/gb/2020/07/23/a102900131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/调查：中国渔船滥捕 朝鲜幽灵船飘日本    >-009fcc?logoWidth=1" title="调查：中国渔船滥捕 朝鲜幽灵船飘日本  " alt="调查：中国渔船滥捕 朝鲜幽灵船飘日本  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wicklt351/djy/blob/master/gb/20/7/22/n12274883.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美关闭休斯顿中领馆“间谍活动猖獗”     >-009fcc?logoWidth=1" title="美关闭休斯顿中领馆“间谍活动猖獗”  " alt="美关闭休斯顿中领馆“间谍活动猖獗”  "></a></p>
 <p><a href="https://github.com/wicklt351/djy/blob/master/gb/20/7/22/n12276072.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美关中领馆 中共为何要留学生“保持警觉”  >-009fcc?logoWidth=1" title="美关中领馆 中共为何要留学生“保持警觉”  " alt="美关中领馆 中共为何要留学生“保持警觉”  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wicklt351/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wicklt351/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wicklt351/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wicklt351/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wicklt351/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wicklt351/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wicklt351/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wicklt351/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wicklt351/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wicklt351/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/taaaa">git.io/taaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/k8888">git.io/k8888</a></div>
 

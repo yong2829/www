@@ -10,17 +10,17 @@
 <div align="center">
 <a target="_blank" href="https://github.com/oyckdw316/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/oyckdw316/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyyyy">git.io/yyyyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/5aa">x.co/5aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qgggg">git.io/qgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3344">x.co/3344</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/23/a102900184.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯敦闭馆持续震荡 北京急撤数万在美留学生 >-009fcc?logoWidth=1" title="休斯敦闭馆持续震荡 北京急撤数万在美留学生  " alt="休斯敦闭馆持续震荡 北京急撤数万在美留学生  "></a></p>
 <p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899928.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美高官暗示:中共总领事从事间谍活动被抓现行 >-009fcc?logoWidth=1" title="美高官暗示:中共总领事从事间谍活动被抓现行  " alt="美高官暗示:中共总领事从事间谍活动被抓现行  "></a></p>
 <p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899945.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯敦中领馆被关 专家:中共煽动种族矛盾是原>-009fcc?logoWidth=1" title="休斯敦中领馆被关 专家:中共煽动种族矛盾是原因之一  " alt="休斯敦中领馆被关 专家:中共煽动种族矛盾是原因之一  "></a></p>
 <p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899492.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普强令关闭中领馆 中方急焚大量文件    >-009fcc?logoWidth=1" title="川普强令关闭中领馆 中方急焚大量文件  " alt="川普强令关闭中领馆 中方急焚大量文件  "></a></p>
 <p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普“灭共”加快节奏 崔天凯泄露中共恐慌  >-009fcc?logoWidth=1" title="川普“灭共”加快节奏 崔天凯泄露中共恐慌  " alt="川普“灭共”加快节奏 崔天凯泄露中共恐慌  "></a></p>
 <p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/21/a102898517.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港2名驻台人员被拒签 台湾强硬回击中共  >-009fcc?logoWidth=1" title="香港2名驻台人员被拒签 台湾强硬回击中共  " alt="香港2名驻台人员被拒签 台湾强硬回击中共  "></a></p>
-<p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899424.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜大饥荒 金正恩下令吃乌龟肉和减肥药   >-009fcc?logoWidth=1" title="朝鲜大饥荒 金正恩下令吃乌龟肉和减肥药  " alt="朝鲜大饥荒 金正恩下令吃乌龟肉和减肥药  "></a></p>
-<p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/23/a102900184.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯敦闭馆持续震荡 北京急撤数万在美留学生 >-009fcc?logoWidth=1" title="休斯敦闭馆持续震荡 北京急撤数万在美留学生  " alt="休斯敦闭馆持续震荡 北京急撤数万在美留学生  "></a></p>
+<p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/23/a102900164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：拆中共南海军事设备 美已部署热战  >-009fcc?logoWidth=1" title="袁弓夷：拆中共南海军事设备 美已部署热战  " alt="袁弓夷：拆中共南海军事设备 美已部署热战  "></a></p>
 <p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/23/a102900169.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美关闭中领馆 前驻华大使：恐升级成军事冲突 >-009fcc?logoWidth=1" title="美关闭中领馆 前驻华大使：恐升级成军事冲突  " alt="美关闭中领馆 前驻华大使：恐升级成军事冲突  "></a></p>
 <p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/23/a102900131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/调查：中国渔船滥捕 朝鲜幽灵船飘日本    >-009fcc?logoWidth=1" title="调查：中国渔船滥捕 朝鲜幽灵船飘日本  " alt="调查：中国渔船滥捕 朝鲜幽灵船飘日本  "></a></p>
 <p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/23/a102900163.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普宣布向暴力激增城市部署特工 百名联邦警察>-009fcc?logoWidth=1" title="川普宣布向暴力激增城市部署特工 百名联邦警察前往芝加哥  " alt="川普宣布向暴力激增城市部署特工 百名联邦警察前往芝加哥  "></a></p>
@@ -41,15 +41,16 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/oyckdw316/djy/blob/master/gb/20/7/22/n12276084.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平隐身 明天系公开叫板 京城局势诡异  >-009fcc?logoWidth=1" title="习近平隐身 明天系公开叫板 京城局势诡异  " alt="习近平隐身 明天系公开叫板 京城局势诡异  "></a></p>
 <p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强不慎滑倒视频热传 党媒罕见低调(视频)>-009fcc?logoWidth=1" title="李克强不慎滑倒视频热传 党媒罕见低调(视频)  " alt="李克强不慎滑倒视频热传 党媒罕见低调(视频)  "></a></p>
-<p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美防长:不希望对中共开战 但须做好战胜准备 >-009fcc?logoWidth=1" title="美防长:不希望对中共开战 但须做好战胜准备  " alt="美防长:不希望对中共开战 但须做好战胜准备  "></a></p>
-<p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中驻美领馆为何被关闭？美国务院:从事间谍活动>-009fcc?logoWidth=1" title="中驻美领馆为何被关闭？美国务院:从事间谍活动  " alt="中驻美领馆为何被关闭？美国务院:从事间谍活动  "></a></p>
-<p><a href="https://github.com/oyckdw316/djy/blob/master/gb/20/7/22/n12274329.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/隐身两周后习露面 要企业家“爱国”的背后  >-009fcc?logoWidth=1" title="隐身两周后习露面 要企业家“爱国”的背后  " alt="隐身两周后习露面 要企业家“爱国”的背后  "></a></p>
-<p><a href="https://github.com/oyckdw316/djy/blob/master/gb/20/7/22/n12274582.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：中共发言人和胡锡进透露了党的恐惧   >-009fcc?logoWidth=1" title="田云：中共发言人和胡锡进透露了党的恐惧  " alt="田云：中共发言人和胡锡进透露了党的恐惧  "></a></p>
 <p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899927.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美关闭中共驻休士顿总领事馆 72小时内驱逐 >-009fcc?logoWidth=1" title="美关闭中共驻休士顿总领事馆 72小时内驱逐 疑操控间谍活动  " alt="美关闭中共驻休士顿总领事馆 72小时内驱逐 疑操控间谍活动  "></a></p>
 <p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102900061.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美命令72小时内关闭中领馆 中共将如何报复？>-009fcc?logoWidth=1" title="美命令72小时内关闭中领馆 中共将如何报复？  " alt="美命令72小时内关闭中领馆 中共将如何报复？  "></a></p>
+<p><a href="https://github.com/oyckdw316/djy/blob/master/gb/20/7/22/n12274329.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/隐身两周后习露面 要企业家“爱国”的背后  >-009fcc?logoWidth=1" title="隐身两周后习露面 要企业家“爱国”的背后  " alt="隐身两周后习露面 要企业家“爱国”的背后  "></a></p>
+<p><a href="https://github.com/oyckdw316/djy/blob/master/gb/20/7/22/n12274582.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：中共发言人和胡锡进透露了党的恐惧   >-009fcc?logoWidth=1" title="田云：中共发言人和胡锡进透露了党的恐惧  " alt="田云：中共发言人和胡锡进透露了党的恐惧  "></a></p>
+<p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899424.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜大饥荒 金正恩下令吃乌龟肉和减肥药   >-009fcc?logoWidth=1" title="朝鲜大饥荒 金正恩下令吃乌龟肉和减肥药  " alt="朝鲜大饥荒 金正恩下令吃乌龟肉和减肥药  "></a></p>
+<p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899253.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:危机中夺权 习近平“座谈会”奇袭李克强>-009fcc?logoWidth=1" title="文昭:危机中夺权 习近平“座谈会”奇袭李克强  " alt="文昭:危机中夺权 习近平“座谈会”奇袭李克强  "></a></p>
 <p><a href="https://github.com/oyckdw316/djy/blob/master/gb/20/7/22/n12276095.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒主管揭秘中共活摘器官的第一目标     >-009fcc?logoWidth=1" title="外媒主管揭秘中共活摘器官的第一目标  " alt="外媒主管揭秘中共活摘器官的第一目标  "></a></p>
 <p><a href="https://github.com/oyckdw316/djy/blob/master/gb/20/7/22/n12274094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢田：六大准备折射中共六大危机       >-009fcc?logoWidth=1" title="谢田：六大准备折射中共六大危机  " alt="谢田：六大准备折射中共六大危机  "></a></p>
-<p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899253.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:危机中夺权 习近平“座谈会”奇袭李克强>-009fcc?logoWidth=1" title="文昭:危机中夺权 习近平“座谈会”奇袭李克强  " alt="文昭:危机中夺权 习近平“座谈会”奇袭李克强  "></a></p>
+<p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美防长:不希望对中共开战 但须做好战胜准备 >-009fcc?logoWidth=1" title="美防长:不希望对中共开战 但须做好战胜准备  " alt="美防长:不希望对中共开战 但须做好战胜准备  "></a></p>
+<p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中驻美领馆为何被关闭？美国务院:从事间谍活动>-009fcc?logoWidth=1" title="中驻美领馆为何被关闭？美国务院:从事间谍活动  " alt="中驻美领馆为何被关闭？美国务院:从事间谍活动  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/oyckdw316/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/oyckdw316/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oyckdw316/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/oyckdw316/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/oyckdw316/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/oyckdw316/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oyckdw316/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/oyckdw316/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/yyyyyyy">git.io/yyyyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/qgggg">git.io/qgggg</a></div>
 

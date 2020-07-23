@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/oyckdw316/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/oyckdw316/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/s5555">git.io/s5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2223">x.co/2223</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kyyyy">git.io/kyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pps">x.co/pps</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899928.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美高官暗示:中共总领事从事间谍活动被抓现行 >-009fcc?logoWidth=1" title="美高官暗示:中共总领事从事间谍活动被抓现行  " alt="美高官暗示:中共总领事从事间谍活动被抓现行  "></a></p>
+<p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899945.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯敦中领馆被关 专家:中共煽动种族矛盾是原>-009fcc?logoWidth=1" title="休斯敦中领馆被关 专家:中共煽动种族矛盾是原因之一  " alt="休斯敦中领馆被关 专家:中共煽动种族矛盾是原因之一  "></a></p>
 <p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899492.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普强令关闭中领馆 中方急焚大量文件    >-009fcc?logoWidth=1" title="川普强令关闭中领馆 中方急焚大量文件  " alt="川普强令关闭中领馆 中方急焚大量文件  "></a></p>
 <p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普“灭共”加快节奏 崔天凯泄露中共恐慌  >-009fcc?logoWidth=1" title="川普“灭共”加快节奏 崔天凯泄露中共恐慌  " alt="川普“灭共”加快节奏 崔天凯泄露中共恐慌  "></a></p>
 <p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/21/a102898517.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港2名驻台人员被拒签 台湾强硬回击中共  >-009fcc?logoWidth=1" title="香港2名驻台人员被拒签 台湾强硬回击中共  " alt="香港2名驻台人员被拒签 台湾强硬回击中共  "></a></p>
 <p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899424.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜大饥荒 金正恩下令吃乌龟肉和减肥药   >-009fcc?logoWidth=1" title="朝鲜大饥荒 金正恩下令吃乌龟肉和减肥药  " alt="朝鲜大饥荒 金正恩下令吃乌龟肉和减肥药  "></a></p>
-<p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：7.21港人重现元朗抗争 警方拘捕多人>-009fcc?logoWidth=1" title="组图：7.21港人重现元朗抗争 警方拘捕多人  " alt="组图：7.21港人重现元朗抗争 警方拘捕多人  "></a></p>
-<p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/防北戴河会议惹事？ 习突袭曾庆红“钱袋子” >-009fcc?logoWidth=1" title="防北戴河会议惹事？ 习突袭曾庆红“钱袋子”  " alt="防北戴河会议惹事？ 习突袭曾庆红“钱袋子”  "></a></p>
+<p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中驻美领馆为何被关闭？美国务院:从事间谍活动>-009fcc?logoWidth=1" title="中驻美领馆为何被关闭？美国务院:从事间谍活动  " alt="中驻美领馆为何被关闭？美国务院:从事间谍活动  "></a></p>
 <p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899826.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙大学生犯强奸罪只判缓刑继续上学 群情激愤 >-009fcc?logoWidth=1" title="浙大学生犯强奸罪只判缓刑继续上学 群情激愤  " alt="浙大学生犯强奸罪只判缓刑继续上学 群情激愤  "></a></p>
 <p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美众院通过国防授权法案 谴责中共侵略印度  >-009fcc?logoWidth=1" title="美众院通过国防授权法案 谴责中共侵略印度  " alt="美众院通过国防授权法案 谴责中共侵略印度  "></a></p>
 <p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899858.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/参与者突遭惨烈车祸 新西兰反共集会传取消  >-009fcc?logoWidth=1" title="参与者突遭惨烈车祸 新西兰反共集会传取消  " alt="参与者突遭惨烈车祸 新西兰反共集会传取消  "></a></p>
 <p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥亲自敲定 单独会见香港民运人士罗冠聪 >-009fcc?logoWidth=1" title="蓬佩奥亲自敲定 单独会见香港民运人士罗冠聪  " alt="蓬佩奥亲自敲定 单独会见香港民运人士罗冠聪  "></a></p>
-<p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899936.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国明年1月开放香港BNO入境签证 可携带亲>-009fcc?logoWidth=1" title="英国明年1月开放香港BNO入境签证 可携带亲属  " alt="英国明年1月开放香港BNO入境签证 可携带亲属  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/oyckdw316/djy/blob/master/gb/20/7/22/n12274883.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美关闭休斯顿中领馆“间谍活动猖獗”     >-009fcc?logoWidth=1" title="美关闭休斯顿中领馆“间谍活动猖獗”  " alt="美关闭休斯顿中领馆“间谍活动猖獗”  "></a></p>
 <p><a href="https://github.com/oyckdw316/djy/blob/master/gb/20/7/22/n12276072.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美关中领馆 中共为何要留学生“保持警觉”  >-009fcc?logoWidth=1" title="美关中领馆 中共为何要留学生“保持警觉”  " alt="美关中领馆 中共为何要留学生“保持警觉”  "></a></p>
@@ -39,16 +39,16 @@
 <p><a href="https://github.com/oyckdw316/djy/blob/master/gb/20/7/22/n12275441.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卢比奥：中共驻休斯顿总领事馆是间谍中心   >-009fcc?logoWidth=1" title="卢比奥：中共驻休斯顿总领事馆是间谍中心  " alt="卢比奥：中共驻休斯顿总领事馆是间谍中心  "></a></p>
 <p><a href="https://github.com/oyckdw316/djy/blob/master/gb/20/7/22/n12276095.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒主管揭秘中共活摘器官的第一目标     >-009fcc?logoWidth=1" title="外媒主管揭秘中共活摘器官的第一目标  " alt="外媒主管揭秘中共活摘器官的第一目标  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强不慎滑倒视频热传 党媒罕见低调(视频)>-009fcc?logoWidth=1" title="李克强不慎滑倒视频热传 党媒罕见低调(视频)  " alt="李克强不慎滑倒视频热传 党媒罕见低调(视频)  "></a></p>
+<p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/21/a102898980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农：川普定下“四骑士”计划击垮中共 分两步>-009fcc?logoWidth=1" title="班农：川普定下“四骑士”计划击垮中共 分两步走  " alt="班农：川普定下“四骑士”计划击垮中共 分两步走  "></a></p>
 <p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899267.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习要取消北戴河会议？社媒爆中共性丑闻要胁名人>-009fcc?logoWidth=1" title="习要取消北戴河会议？社媒爆中共性丑闻要胁名人  " alt="习要取消北戴河会议？社媒爆中共性丑闻要胁名人  "></a></p>
-<p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/21/a102898510.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院为一团体发重磅声明 吓坏中共    >-009fcc?logoWidth=1" title="美国务院为一团体发重磅声明 吓坏中共  " alt="美国务院为一团体发重磅声明 吓坏中共  "></a></p>
-<p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强不慎滑倒视频热传 党媒罕见低调    >-009fcc?logoWidth=1" title="李克强不慎滑倒视频热传 党媒罕见低调  " alt="李克强不慎滑倒视频热传 党媒罕见低调  "></a></p>
 <p><a href="https://github.com/oyckdw316/djy/blob/master/gb/20/7/22/n12274094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢田：六大准备折射中共六大危机       >-009fcc?logoWidth=1" title="谢田：六大准备折射中共六大危机  " alt="谢田：六大准备折射中共六大危机  "></a></p>
 <p><a href="https://github.com/oyckdw316/djy/blob/master/gb/20/7/22/n12274329.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/隐身两周后习露面 要企业家“爱国”的背后  >-009fcc?logoWidth=1" title="隐身两周后习露面 要企业家“爱国”的背后  " alt="隐身两周后习露面 要企业家“爱国”的背后  "></a></p>
-<p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/21/a102898785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/直播新闻突掉门牙 女主播淡定接住获热赞   >-009fcc?logoWidth=1" title="直播新闻突掉门牙 女主播淡定接住获热赞  " alt="直播新闻突掉门牙 女主播淡定接住获热赞  "></a></p>
+<p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/21/a102898510.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院为一团体发重磅声明 吓坏中共    >-009fcc?logoWidth=1" title="美国务院为一团体发重磅声明 吓坏中共  " alt="美国务院为一团体发重磅声明 吓坏中共  "></a></p>
 <p><a href="https://github.com/oyckdw316/djy/blob/master/gb/20/7/22/n12275199.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/冰雹暴雨突袭哈尔滨 白昼变黑夜 多路段淹水 >-009fcc?logoWidth=1" title="冰雹暴雨突袭哈尔滨 白昼变黑夜 多路段淹水  " alt="冰雹暴雨突袭哈尔滨 白昼变黑夜 多路段淹水  "></a></p>
 <p><a href="https://github.com/oyckdw316/djy/blob/master/gb/20/7/22/n12274119.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：美国区分中共与中国 中共为何气急败坏 >-009fcc?logoWidth=1" title="袁斌：美国区分中共与中国 中共为何气急败坏  " alt="袁斌：美国区分中共与中国 中共为何气急败坏  "></a></p>
-<p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899659.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美政商猛料被爆出 舔习法师遭打压      >-009fcc?logoWidth=1" title="美政商猛料被爆出 舔习法师遭打压  " alt="美政商猛料被爆出 舔习法师遭打压  "></a></p>
-<p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/22/a102899310.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平露面谈“爱国” 与李克强各说各话   >-009fcc?logoWidth=1" title="习近平露面谈“爱国” 与李克强各说各话  " alt="习近平露面谈“爱国” 与李克强各说各话  "></a></p>
+<p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强不慎滑倒视频热传 党媒罕见低调    >-009fcc?logoWidth=1" title="李克强不慎滑倒视频热传 党媒罕见低调  " alt="李克强不慎滑倒视频热传 党媒罕见低调  "></a></p>
+<p><a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/2020/07/21/a102898785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/直播新闻突掉门牙 女主播淡定接住获热赞   >-009fcc?logoWidth=1" title="直播新闻突掉门牙 女主播淡定接住获热赞  " alt="直播新闻突掉门牙 女主播淡定接住获热赞  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/oyckdw316/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/oyckdw316/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oyckdw316/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/oyckdw316/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/oyckdw316/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oyckdw316/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/oyckdw316/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oyckdw316/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/oyckdw316/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/s5555">git.io/s5555</a></div>
+<div align="center">短网址: <a href="https://git.io/kyyyy">git.io/kyyyy</a></div>
 
